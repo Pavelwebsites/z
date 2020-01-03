@@ -1,0 +1,1045 @@
+
+<!DOCTYPE HTML>
+<html lang="ru">
+  <head>
+<title>1win зеркало рабочее на сегодня - актуальная ссылка на 1Вин</title>
+    <meta http-equiv="Content-type" content="text/html; charset=UTF-8">
+    <link rel="icon" href="/favicon.ico" type="image/x-icon">
+    
+<!-- SEO по Rank Math - https://s.rankmath.com/home -->
+<meta name="description" content="1win зеркало рабочее. Актуальная ссылка на сайт 1win. Зеркало 1Вин работает сегодня прямо сейчас. Вход в 1 Win обновляется ежедневно. 1win промокод - 1wintor"/>
+<meta name="robots" content="follow,index,max-snippet:150,max-image-preview:standard"/>
+<link rel="canonical" href="https://1win-zerkalo.ru/" />
+<meta property="og:locale" content="ru_RU">
+<meta property="og:type" content="website">
+<meta property="og:title" content="1win зеркало рабочее на сегодня - актуальная ссылка на 1Вин">
+<meta property="og:description" content="1win зеркало рабочее. Актуальная ссылка на сайт 1win. Зеркало 1Вин работает сегодня прямо сейчас. Вход в 1 Win обновляется ежедневно. 1win промокод - 1wintor">
+<meta property="og:url" content="https://1win-zerkalo.ru/">
+<meta property="og:site_name" content="1win зеркало">
+<meta property="og:updated_time" content="2019-12-23T12:12:03+00:00">
+<meta property="og:image" content="https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало.png">
+<meta property="og:image:secure_url" content="https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало.png">
+<meta property="og:image:width" content="560">
+<meta property="og:image:height" content="315">
+<meta property="og:image:alt" content="1win зеркало рабочее">
+<meta property="og:image:type" content="image/png">
+<meta name="twitter:card" content="summary_large_image">
+<meta name="twitter:title" content="1win зеркало рабочее на сегодня - актуальная ссылка на 1Вин">
+<meta name="twitter:description" content="1win зеркало рабочее. Актуальная ссылка на сайт 1win. Зеркало 1Вин работает сегодня прямо сейчас. Вход в 1 Win обновляется ежедневно. 1win промокод - 1wintor">
+<meta name="twitter:image" content="https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало.png">
+<script type="application/ld+json">[{"@context":"https:\/\/schema.org","@type":"WebSite","@id":"https:\/\/1win-zerkalo.ru\/#website","url":"https:\/\/1win-zerkalo.ru","name":"1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e","potentialAction":{"@type":"SearchAction","target":"https:\/\/1win-zerkalo.ru\/?s={search_term_string}","query-input":"required name=search_term_string"}},{"@context":"https:\/\/schema.org","@type":"Review","author":{"@type":"Person","name":"1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e"},"name":"1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f - \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 1\u0412\u0438\u043d","datePublished":"2019-08-14T14:00:22+00:00","description":"\u0420\u0430\u0431\u043e\u0447\u0438\u0439 \u0432\u0445\u043e\u0434 \u043d\u0430 \u0441\u0430\u0439\u0442","itemReviewed":{"@type":"Thing","name":"1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f - \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 1\u0412\u0438\u043d","image":{"@type":"ImageObject","url":"https:\/\/1win-zerkalo.ru\/wp-content\/uploads\/2019\/08\/1win-\u0437\u0435\u0440\u043a\u0430\u043b\u043e.png","width":560,"height":315}},"reviewRating":{"@type":"Rating","worstRating":1,"bestRating":"5","ratingValue":"5"},"image":{"@type":"ImageObject","url":"https:\/\/1win-zerkalo.ru\/wp-content\/uploads\/2019\/08\/1win-\u0437\u0435\u0440\u043a\u0430\u043b\u043e.png","width":560,"height":315}}]</script>
+<!-- /Rank Math WordPress SEO плагин -->
+
+<link rel='dns-prefetch' href='//ajax.googleapis.com' />
+<link rel='stylesheet' id='wp-block-library-css'  href='https://1win-zerkalo.ru/wp-includes/css/dist/block-library/style.min.css?ver=5.2.5' type='text/css' media='all' />
+<link rel='stylesheet' id='lwptoc-main-css'  href='https://1win-zerkalo.ru/wp-content/plugins/luckywp-table-of-contents/front/assets/main.min.css?ver=1.9.11' type='text/css' media='all' />
+<link rel='stylesheet' id='common-style-css'  href='https://1win-zerkalo.ru/wp-content/themes/landing-1win/style.css?ver=5.2.5' type='text/css' media='all' />
+<link rel='stylesheet' id='addtoany-css'  href='https://1win-zerkalo.ru/wp-content/plugins/add-to-any/addtoany.min.css?ver=1.15' type='text/css' media='all' />
+<script type='text/javascript' src='//ajax.googleapis.com/ajax/libs/jquery/3.3.1/jquery.min.js?ver=3.3.1'></script>
+<script type='text/javascript' src='https://1win-zerkalo.ru/wp-content/plugins/add-to-any/addtoany.min.js?ver=1.1'></script>
+<script type='text/javascript' src='https://1win-zerkalo.ru/wp-content/plugins/luckywp-table-of-contents/front/assets/main.min.js?ver=1.9.11'></script>
+
+<script data-cfasync="false">
+window.a2a_config=window.a2a_config||{};a2a_config.callbacks=[];a2a_config.overlays=[];a2a_config.templates={};a2a_localize = {
+	Share: "Отправить",
+	Save: "Сохранить",
+	Subscribe: "Подписаться",
+	Email: "E-mail",
+	Bookmark: "В закладки!",
+	ShowAll: "Показать все",
+	ShowLess: "Показать остальное",
+	FindServices: "Найти сервис(ы)",
+	FindAnyServiceToAddTo: "Найти сервис и добавить",
+	PoweredBy: "Работает на",
+	ShareViaEmail: "Поделиться по электронной почте",
+	SubscribeViaEmail: "Подписаться по электронной почте",
+	BookmarkInYourBrowser: "Добавить в закладки",
+	BookmarkInstructions: "Нажмите Ctrl+D или \u2318+D, чтобы добавить страницу в закладки",
+	AddToYourFavorites: "Добавить в Избранное",
+	SendFromWebOrProgram: "Отправлять с любого email-адреса или email-программы",
+	EmailProgram: "Почтовая программа",
+	More: "Подробнее&#8230;",
+	ThanksForSharing: "Спасибо, что поделились!",
+	ThanksForFollowing: "Спасибо за подписку!"
+};
+
+(function(d,s,a,b){a=d.createElement(s);b=d.getElementsByTagName(s)[0];a.async=1;a.src="https://static.addtoany.com/menu/page.js";b.parentNode.insertBefore(a,b);})(document,"script");
+</script>
+<meta name="viewport" content="width=device-width, initial-scale=1, maximum-scale=5">    <!-- Yandex.Metrika counter -->
+      <script type="text/javascript" >
+         (function(m,e,t,r,i,k,a){m[i]=m[i]||function(){(m[i].a=m[i].a||[]).push(arguments)};
+         m[i].l=1*new Date();k=e.createElement(t),a=e.getElementsByTagName(t)[0],k.async=1,k.src=r,a.parentNode.insertBefore(k,a)})
+         (window, document, "script", "https://mc.yandex.ru/metrika/tag.js", "ym");
+
+         ym(55065310, "init", {
+              clickmap:true,
+              trackLinks:true,
+              accurateTrackBounce:true,
+              webvisor:true
+         });
+      </script>
+      <noscript><div><img src="https://mc.yandex.ru/watch/55065310" style="position:absolute; left:-9999px;" alt="" /></div></noscript>
+      <!-- /Yandex.Metrika counter -->
+      <!-- Global site tag (gtag.js) - Google Analytics -->
+      <script async src="https://www.googletagmanager.com/gtag/js?id=UA-146414531-1"></script>
+      <script>
+        window.dataLayer = window.dataLayer || [];
+        function gtag(){dataLayer.push(arguments);}
+        gtag('js', new Date());
+
+        gtag('config', 'UA-146414531-1');
+      </script>
+      <meta name="p:domain_verify" content="1bf2308af6784e72c2a310d39149edd3"/>
+      <meta name="google-site-verification" content="VbVmR1JoA9cCXbSOGXgSNc3DgP-ySfgycMTVNZBzgsk" />
+      <meta name="yandex-verification" content="f2f80134aa17e1bb" />
+  </head>
+  <body class="home page-template-default page page-id-9" itemscope itemtype="http://schema.org/WebPage">
+
+    <header  itemscope itemtype="http://schema.org/WPHeader">
+			<div class="box">
+              <div class="logo">
+                <img src="https://1win-zerkalo.ru/wp-content/themes/landing-1win/logo.svg" alt="1win logo">
+              </div>
+              <!-- <input type="checkbox" class="inp-menu" id="menu-open" />
+                <div class="nav-menu">
+                  <nav class="menu"><ul>
+<li class="page_item page-item-9 current_page_item"><a href="https://1win-zerkalo.ru/" aria-current="page">1win зеркало рабочее на сегодня &#8212; актуальная ссылка на 1Вин</a></li>
+</ul></nav>
+                </div>
+                <label for="menu-open" class="bugrer-menu">
+                  <span></span>
+                  <span></span>
+                  <span></span>
+                </label>
+				</div> -->
+		</header>
+<main>
+<section>
+  <div class="box b1">
+    <div class="left-area">
+      <div class="one-plus">
+        <div class="check"></div>
+        <span>50 000 рублей по промокоду 1wintor</span>
+      </div>
+      <div class="one-plus">
+        <div class="check"></div>
+        <span>Быстрые и честные выплаты</span>
+      </div>
+      <div class="one-plus">
+        <div class="check"></div>
+        <span>Большое количество событий</span>
+      </div>
+      <a href="#a1" class="obzor">Смотреть <span></span></a>
+      <a class="header-btn" href="http://ru-bk1.xyz/bk_1win">Перейти на сайт</a>
+    </div>
+  </div>
+  <div class="box b2">
+    <article id="a1">
+      <header class="header-article">
+        <h1><span></span>1win зеркало рабочее на сегодня &#8212; актуальная ссылка на 1Вин<span></span></h1>
+      </header>
+      <div class="content">
+
+        <div class="lwptoc lwptoc-baseItems lwptoc-inherit" data-smooth-scroll="1" data-smooth-scroll-offset="24"><div class="lwptoc_i"><div class="lwptoc_items">
+    <ul class="lwptoc_itemWrap"><li class="lwptoc_item">    <a href="#1win-zerkalo---molodoj-i-perspektivnyj-bukmeker" class="lwptoc_item">
+                    <span class="lwptoc_item_number">1.</span>
+                <span class="lwptoc_item_label">1win зеркало &#8212; молодой и перспективный букмекер</span>
+    </a>
+    </li><li class="lwptoc_item">    <a href="#Cto-takoe-1win-zerkalo-i-zacem-ono" class="lwptoc_item">
+                    <span class="lwptoc_item_number">2.</span>
+                <span class="lwptoc_item_label">Что такое 1win зеркало и зачем оно?</span>
+    </a>
+    </li><li class="lwptoc_item">    <a href="#1win-zerkalo---perejti-na-sajt-v-odin-klik" class="lwptoc_item">
+                    <span class="lwptoc_item_number">3.</span>
+                <span class="lwptoc_item_label">1win зеркало – перейти на сайт в один клик</span>
+    </a>
+    </li></ul></div>
+</div></div><p>1win зеркало решит ваши проблемы, ведь если беттер играет на ставки c нелицензионными в России букмекерскими конторами, обязательно настанет момент, когда игрок увидит страшную надпись &#8212; «Сайт заблокирован». Успокаиваем: в такой ситуации паника – лишнее, ведь данные не удалены, выигрыш не аннулирован, играть и вывести деньги по-прежнему можно. Здесь мы расскажем о способе обхода блокировки и поделимся ссылкой на <strong>1win зеркало</strong>, которая избавит вас от проблем с доступом к букмекеру.</p>
+<p><a class="main-btn" href="http://ru-bk1.xyz/bk_1win" target="_blank" rel="noopener">Перейти на сайт</a></p>
+<h2><span id="1win-zerkalo---molodoj-i-perspektivnyj-bukmeker">1win зеркало &#8212; молодой и перспективный букмекер</span></h2>
+<p>Большая плотность конкуренции не означает, что новых игроков на рынке не появится. Наоборот, такая ситуация стимулирует улучшаться всех обитателей ниши. Игорный бизнес – не исключение. Наличие сильного и крепкого ряда конкурентов не помешало букмекерской конторе 1win в 2018 году громко ворваться на просторы спортивных ставок в интернете.</p>
+<blockquote><p>Используйте 1win промокод | 1wintor | для бонуса до 50 000 рублей на первый депозит!</p></blockquote>
+<p>БК 1Вин быстро собрала вокруг себя игроков, жаждущих испытать новоявленного букмекера. Компания не подвела доверившихся им клиентов и предложила широкую линию ставок на популярнейшие виды спорта, включая киберспорт. Постоянно растущая аудитория букмекера и положительные отзывы клиентов – доказательство, что выбранная стратегия развития компании верная.</p>
+<p>Однако не все так просто, как кажется: законодательство Российской Федерации всячески препятствует деятельности БК, стараясь отхватить свой кусок торта и снизить доходы как букмекерских контор, так и беттеров. К счастью, какой бы высокой не была скорость Роскомнадзора в раздаче блокировок неугодным сайтам, решение найдется всегда. В нашем случае – это 1win сайт зеркало, где можно полноценно наслаждаться услугами букмекера, не думая о внезапной блокировке.</p>
+<div id="attachment_25" style="width: 310px" class="wp-caption alignnone"><img aria-describedby="caption-attachment-25" class="size-medium wp-image-25" src="https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало-300x169.png" alt="1win зеркало рабочее" width="300" height="169" srcset="https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало-300x169.png 300w, https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-зеркало.png 560w" sizes="(max-width: 300px) 100vw, 300px" /><p id="caption-attachment-25" class="wp-caption-text">Актуальное зеркало букмекерской конторы 1win</p></div>
+<h2><span id="Cto-takoe-1win-zerkalo-i-zacem-ono">Что такое 1win зеркало и зачем оно?</span></h2>
+<p>Чтобы букмекерской конторе официально работать на территории России, ей нужно пройти регистрацию в специальной организации – ЦУПИС (Центре учета переводов интерактивных ставок). А это означает уплату дополнительных налогов, снижение суммы выигрышей, постоянный контроль. В случае, если сотрудники Роскомнадзора натыкаются на незарегистрированный сайт БК, доступ к нему на территории РФ блокируется. Программисты букмекерских контор искали лазейку, как обойти эту блокировку и дать своим пользователям возможность максимально насладиться игрой и получить заслуженный выигрыш в полном объеме. В итоге, решение было найдено – зеркала сайтов.</p>
+<p><a href="/">1вин зеркало</a> – это полная копия сайта БК, которая размещается на видоизмененном резервном URL-е. Обычно это бессвязный набор символов, никак не связанный с именем основного домена БК. Таким образом, задача добавления адреса в список запрещенных усложняется, и Роскомнадзору нужно время, чтобы найти и заблокировать адрес. Актуальные ссылки на зеркала позволяют пользователям спокойно играть на ставках не в ущерб своим интересам.</p>
+<p>Есть еще два вопроса, которые часто задают беттеры-новички. Даем на них ответы:</p>
+<ol>
+<li>Каждое 1win зеркало отличается одно от другого?<br />
+Нет, все сайты абсолютно идентичны. Базы данных полностью копируются на 1win зеркало рабочее на сегодня, и посетитель всегда видит актуальную информацию. Сравнивать сайты на разных адресах бессмысленно, потому что никакой разницы нет.</li>
+<li>Мне придется регистрироваться заново, если очередную ссылку заблокируют?<br />
+Вся информация из личного кабинета на 1win рабочее зеркало. Регистрация проходит всего один раз, и пользователю не нужно беспокоиться о сохранности своего аккаунта.</li>
+</ol>
+<h2><span id="1win-zerkalo---perejti-na-sajt-v-odin-klik">1win зеркало – перейти на сайт в один клик</span></h2>
+<p>Пройдет какое-то время, и Роскомнадзор в любом случае доберется до зеркала и безжалостно заблокирует его. После этого перед беттером появляется задача &#8212; найти новое 1win зеркало на сегодня. По разным причинам, порой, на поиски приходится тратить не один час: ссылки на зеркала, которые выдает поиск, уже не актуальны, или ведут на какой-то непонятный сайт, совсем не связанный с букмекерской конторой 1Вин. Нужная ссылка постоянно ускользает.</p>
+<p>Решение этой проблемы находится здесь. Наш сайт – спасательный круг для тех, кто увяз в недрах интернета в поисках актуальных зеркал БК. Каким бы быстрым ни был Роскомнадзор, на этой странице ссылка на 1вин зеркало обновляется мгновенно, пользователь даже не поймет, что предыдущий адрес был заблокирован.</p>
+<p>Главное преимущество нашего сайта – постоянное отслеживание актуальности информации. Добавив эту страницу в закладки, вы будете в курсе, где 1win рабочее зеркало сейчас, и повод тратить свое время на штурм поисковых систем отпадет навсегда.</p>
+<p><a class="main-btn" href="http://ru-bk1.xyz/bk_1win" target="_blank" rel="noopener">Перейти на сайт</a></p>
+<p>Нажмите кнопку с актуальным зеркалом, и вы перенесетесь в волшебный мир 1Вин, где вас ждут крупные коэффициенты, быстрые выплаты и широкая линия ставок.</p>
+<div class="addtoany_share_save_container addtoany_content addtoany_content_bottom"><div class="a2a_kit a2a_kit_size_32 addtoany_list" data-a2a-url="https://1win-zerkalo.ru/" data-a2a-title="1win зеркало рабочее на сегодня — актуальная ссылка на 1Вин"><a class="a2a_button_facebook" href="https://www.addtoany.com/add_to/facebook?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Facebook" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_twitter" href="https://www.addtoany.com/add_to/twitter?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Twitter" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_pinterest" href="https://www.addtoany.com/add_to/pinterest?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Pinterest" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_whatsapp" href="https://www.addtoany.com/add_to/whatsapp?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="WhatsApp" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_blogger" href="https://www.addtoany.com/add_to/blogger?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Blogger" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_livejournal" href="https://www.addtoany.com/add_to/livejournal?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="LiveJournal" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_odnoklassniki" href="https://www.addtoany.com/add_to/odnoklassniki?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Odnoklassniki" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_vk" href="https://www.addtoany.com/add_to/vk?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="VK" rel="nofollow noopener" target="_blank"></a><a class="a2a_button_telegram" href="https://www.addtoany.com/add_to/telegram?linkurl=https%3A%2F%2F1win-zerkalo.ru%2F&amp;linkname=1win%20%D0%B7%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%B3%D0%BE%D0%B4%D0%BD%D1%8F%20%E2%80%94%20%D0%B0%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%81%D1%81%D1%8B%D0%BB%D0%BA%D0%B0%20%D0%BD%D0%B0%201%D0%92%D0%B8%D0%BD" title="Telegram" rel="nofollow noopener" target="_blank"></a><a class="a2a_dd addtoany_share_save addtoany_share" href="https://www.addtoany.com/share"></a></div></div>        <div class="faq">
+        <h3>Вопрос-ответ</h3>
+        <div class="one-q">
+          <div class="question">
+              <span itemprop="name" style="color: #1a88f3;">&#10026;&nbsp;<h4>1win зеркало - в чем отличие от официального сайта бк?</h4></span>
+          </div>
+          <div class="answer">
+            <p>1win зеркало отличается от основного сайта БК 1Вин только доменом (набор букв в адресной строке). В остальном, это полная копия букмекерской конторы 1win, со всеми доступами к личным кабинетам, возможностью регистрироваться, делать ставки, выводить и пополнять средства. </p>
+          </div>
+          <div class="one-q">
+            <div class="question">
+                <span itemprop="name" style="color: #1a88f3;">&#10026;&nbsp;<h4>Как найти зеркало 1win?</h4></span>
+            </div>
+            <div class="answer">
+              <p>На нашем сайте уже есть ссылка на зеркало 1win. Переходите по ней и вы гарантировано попадете на официальное зеркало букмекера 1win. В ином случае, зеркало 1win возможно найти в любой поисковой системе или социальных сетях.</p>
+            </div>
+          </div>
+          <div class="one-q">
+            <div class="question">
+                <span itemprop="name" style="color: #1a88f3;">&#10026;&nbsp;<h4>Безопасно ли регистрироваться через 1win зеркало?</h4></span>
+            </div>
+            <div class="answer">
+              <p>Наше 1win зеркало абсолютно безопасно и является официальным. Вы безопасно сможете завести аккаунт, войти под своим логим или паролем, если регистрировались раньше, внести депозит или снять выигрыш. </p>
+            </div>
+          </div>
+      </div>
+
+
+        
+<!-- You can start editing here. -->
+
+	<h3 id="comments">
+		38 комментариев на &laquo;&#8220;1win зеркало рабочее на сегодня &#8212; актуальная ссылка на 1Вин&#8221;&raquo;	</h3>
+
+	<div class="navigation">
+		<div class="alignleft"></div>
+		<div class="alignright"></div>
+	</div>
+
+	<ol class="commentlist">
+			<li class="comment even thread-even depth-1" id="comment-56">
+				<div id="div-comment-56" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Tatoo</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-56">
+			2019-12-29 в 22:53				</a>
+						</div>
+
+		<p>1win имеет немного хороших отзывов в интернете, больше негативных. Но лично я не сталкивался с обманом или кидаловом в бк 1win. Главное, вовремя верифицировать аккаунт и играть честно. Все остальное в 1win отлично &#8212; хорошая линия, неплохие коэффициенты. Да и бонусы у них большие.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-56' data-commentid="56" data-postid="9" data-belowelement="div-comment-56" data-respondelement="respond" aria-label='Комментарий к записи Tatoo'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-50">
+				<div id="div-comment-50" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">conttiiof</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-50">
+			2019-12-27 в 20:45				</a>
+						</div>
+
+		<p>Отличная контора 1win, несмотря на то, что относительно молодая БК. Всегда можно найти 1win зеркало, сайт не зависает, не тупит. Деньги вывожу очень быстро на карточку. Всегда много событий, на которые можно сделать ставку</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-50' data-commentid="50" data-postid="9" data-belowelement="div-comment-50" data-respondelement="respond" aria-label='Комментарий к записи conttiiof'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-47">
+				<div id="div-comment-47" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Maria</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-47">
+			2019-12-27 в 13:37				</a>
+						</div>
+
+		<p>2win &#8212; шикарная контора с самыми быстрыми выводами. Очень нравится, что нет непонятных и неизвестных лиг, практически сразу можно найти то, куда стоит поставить. Так же в тех поддержке 1win лично мне всегда отвечали реальные люди, а не отписки робота.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-47' data-commentid="47" data-postid="9" data-belowelement="div-comment-47" data-respondelement="respond" aria-label='Комментарий к записи Maria'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-46">
+				<div id="div-comment-46" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Андрей</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-46">
+			2019-12-27 в 08:38				</a>
+						</div>
+
+		<p>У 1win конторы есть кучу плюсов — быстрый вывод денег, неплохие коэффициенты. Но ужасная тех.поддержка , я уже почти месяц прождал(29 дней) , но так и не получил ответа . А в правиле у них написано , что макс.срок ответа 30 дней, 1win лайв-поддержка не может внятно ответить, отправили мое обращение в спец.отдел , но ничего так и не произошло, пока у вас нету проблем — вы будете спокойно играть.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-46' data-commentid="46" data-postid="9" data-belowelement="div-comment-46" data-respondelement="respond" aria-label='Комментарий к записи Андрей'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-45">
+				<div id="div-comment-45" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Виталий</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-45">
+			2019-12-26 в 16:15				</a>
+						</div>
+
+		<p>Решил начать ставить на 1win, так как перешел по рекомендации друзей.<br />
+По началу все было очень хорошо, никаких задержек в выплате, хорошая роспись. Но как-то только мне повезло и зашло событие с кф 6 , я начал выводить деньги и мне заморозили аккаунты. Я очень стал переживать, что с моими деньгами и тд. Написал в чат 1win, мне сказали написать на почту, запросили документы — я все предоставил. Через некоторое время аккаунт разморозили без проблем и вывели мне деньги. Так что + в репутацию 1win</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-45' data-commentid="45" data-postid="9" data-belowelement="div-comment-45" data-respondelement="respond" aria-label='Комментарий к записи Виталий'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-44">
+				<div id="div-comment-44" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Maria</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-44">
+			2019-12-26 в 13:29				</a>
+						</div>
+
+		<p>1win хороший ресурс для новичка в ставках. Помимо большого бонуса на первый депозит, здесь можно с уверенностью выводит деньги, без каких-либо проволочек и задержек. Единственное, нужно сразу же подтвердить личность, чтобы выигрыш сразу получить на карту. </p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-44' data-commentid="44" data-postid="9" data-belowelement="div-comment-44" data-respondelement="respond" aria-label='Комментарий к записи Maria'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-43">
+				<div id="div-comment-43" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Mow</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-43">
+			2019-12-25 в 18:29				</a>
+						</div>
+
+		<p>1win внушает доверие своим игрокам хотя бы стабильными выплатами в срок. Практически никогда нет задержек в выаоде денег и вопросов к мультиаккаунту. Поэтому и делаю ставки в 1win и друзьям рекомендую. Да, знаю историю, когда 1win называлась по другому, а потом кинула своих игроков и заморозила все средства, но, надеюсь, сейчас такого не случится</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-43' data-commentid="43" data-postid="9" data-belowelement="div-comment-43" data-respondelement="respond" aria-label='Комментарий к записи Mow'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-42">
+				<div id="div-comment-42" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Andron</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-42">
+			2019-12-25 в 17:38				</a>
+						</div>
+
+		<p>На старте деятельности 1win рекламировали все подряд, сейчас уже поменьше, видимо, набрали свой пул игроков, а на лавры 1хбет не претендуют. Но для существующих игроков это и хорошо, нет непонятных ситуаций с блокровкой личного кабинета, средств на счете и коэффициенты вполне себе адекватные. Так что мой выбор &#8212; 1win</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-42' data-commentid="42" data-postid="9" data-belowelement="div-comment-42" data-respondelement="respond" aria-label='Комментарий к записи Andron'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-36">
+				<div id="div-comment-36" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Vera</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-36">
+			2019-12-25 в 12:51				</a>
+						</div>
+
+		<p>Друзья порекомендовали 1win в качестве дополнительной букмекерской конторы, так как всегда можно найти рабочее зеркало 1win, есть хорошие предложения и высокие коэффициенты Вывод честный, главное, подтвердить документами свой аккаунт в 1Win  и не стесняться обращаться к техподдержке. </p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-36' data-commentid="36" data-postid="9" data-belowelement="div-comment-36" data-respondelement="respond" aria-label='Комментарий к записи Vera'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-31">
+				<div id="div-comment-31" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">DarioTen</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-31">
+			2019-12-23 в 13:52				</a>
+						</div>
+
+		<p>1win &#8212; неплохая букмекерская контора, существующая на ранке азартных игр уже несколько лет. Сразу у игроков вызывали опасения большие бонусы 1win на первоначальный депозит, однако, многим удалось получить деньги не только на игровой счет, но и на карточку. Главное, выполнить все условия 1win</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-31' data-commentid="31" data-postid="9" data-belowelement="div-comment-31" data-respondelement="respond" aria-label='Комментарий к записи DarioTen'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-30">
+				<div id="div-comment-30" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Mike</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-30">
+			2019-12-22 в 17:13				</a>
+						</div>
+
+		<p>Пользуюсь 1win уже давно для ставок на спорт, в последнее время еще и в казино стал заходить. БК 1win устраивает меня абсолютно, нормальные коэффициенты, даже выше, чем в других конторах, много возможностей для доступа к официальному сайту 1win, быстрый и адекватный вывод денег.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-30' data-commentid="30" data-postid="9" data-belowelement="div-comment-30" data-respondelement="respond" aria-label='Комментарий к записи Mike'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-29">
+				<div id="div-comment-29" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Tatiana</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-29">
+			2019-12-17 в 13:21				</a>
+						</div>
+
+		<p>1win довольно хорошая альтернатива тем букмекерским конторам, которые уже совсем обнаглели и блокируют аккаунты просто так, без объяснения причин. У меня никогда не было мульти регистраций, да и деньги выводила редко, ставила просто для интереса. Поэтому перешла на 1win, где привлек большой первоначальный бонус. Да и 1win зеркало найти гораздо проще</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-29' data-commentid="29" data-postid="9" data-belowelement="div-comment-29" data-respondelement="respond" aria-label='Комментарий к записи Tatiana'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-28">
+				<div id="div-comment-28" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">aweqw</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-28">
+			2019-12-16 в 12:49				</a>
+						</div>
+
+		<p>1win не ушла в широкие массы, как мелбет или 1х, поэтому мне и нравится. Нет этой дикой навязчивости, как у остальных. 1win хорошая букмекерская контора для новичка &#8212; просто пройти регистрацию, получить огромный бонус на первый депозит и делать ставки.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-28' data-commentid="28" data-postid="9" data-belowelement="div-comment-28" data-respondelement="respond" aria-label='Комментарий к записи aweqw'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-27">
+				<div id="div-comment-27" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Сарочка</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-27">
+			2019-12-10 в 07:53				</a>
+						</div>
+
+		<p>1win зеркало удобно использовать тем, кто любит ставки на спорт или казино. ТАк как правительство закрутила всем руки насчет лицензии в цупис, то офшорные букмекеры, в том числе, и 1win, начали выпускать зеркала. Ведь люди все равно будут делать ставки в выбранной конторе ,а не в той, которую советует государство. Поэтому сейчас найти вход на официальный сайт 1win непросто, нужно использовать зеркало.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-27' data-commentid="27" data-postid="9" data-belowelement="div-comment-27" data-respondelement="respond" aria-label='Комментарий к записи Сарочка'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-25">
+				<div id="div-comment-25" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">duege</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-25">
+			2019-12-06 в 23:41				</a>
+						</div>
+
+		<p>1win зеркало создано специально для несчастных игроков из России, которым постоянно вставляют палки в колеса и блокируют официальный сайт 1win. Поэтому приходится выкручиваться и искать рабочее зеркало 1win, чтобы сделать ставку в проверенной конторе. </p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-25' data-commentid="25" data-postid="9" data-belowelement="div-comment-25" data-respondelement="respond" aria-label='Комментарий к записи duege'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-24">
+				<div id="div-comment-24" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Avdej</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-24">
+			2019-12-06 в 06:06				</a>
+						</div>
+
+		<p>1win зеркало с вашего сайта часто выручает меня, когда забываю, что какой-то интересный матч и желательно было сделать ставку, а рабочее зеркало 1win искать уже нет времени. Захожу сюда, перехожу на официальный сайт 1win и спокойно успеваю поставить на личного фаворита.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-24' data-commentid="24" data-postid="9" data-belowelement="div-comment-24" data-respondelement="respond" aria-label='Комментарий к записи Avdej'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-23">
+				<div id="div-comment-23" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Lena</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-23">
+			2019-12-05 в 19:32				</a>
+						</div>
+
+		<p>1win зеркало радует своей постоянностью. Всегда работает, никаких подвисаний, регулярных блокировок. Уже только за это можно выбрать 1win букмекерскую контору в качестве основной для ставок на спорт. Прибавить к этому широкую линию и огромный депозитный бонус по 1win промокоду &#8212; получится весьма привлекательная картина для любителей азартных игр. </p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-23' data-commentid="23" data-postid="9" data-belowelement="div-comment-23" data-respondelement="respond" aria-label='Комментарий к записи Lena'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-22">
+				<div id="div-comment-22" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Imled</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-22">
+			2019-12-05 в 17:36				</a>
+						</div>
+
+		<p>Только начал делать ставки в бк 1win. Перешел по 1win зеркало отсюда на официальный сайт букмекера. Пока мне все нравится, тем более, реально выплатили огромный бонус по 1win промокоду! По-моему, это самый большой бонус на первый депозит среди всех букмекеров. Теперь отыгрываю аккуратно, чтобы вывести потом на основной счет.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-22' data-commentid="22" data-postid="9" data-belowelement="div-comment-22" data-respondelement="respond" aria-label='Комментарий к записи Imled'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-21">
+				<div id="div-comment-21" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Sarah</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-21">
+			2019-12-05 в 12:52				</a>
+						</div>
+
+		<p>Если кто-то не может найти ссылку на зеркало 1win, то смело можно переходить отсюда. Как-то давно тоже находилась в поиске рабочего зеркала 1win, пока не нашла этот сайт. Теперь вход на сайт 1win только отсюда &#8212; всегда актуальная и рабочая ссылка на официальный сайт.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-21' data-commentid="21" data-postid="9" data-belowelement="div-comment-21" data-respondelement="respond" aria-label='Комментарий к записи Sarah'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-20">
+				<div id="div-comment-20" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Mihailkeeks</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-20">
+			2019-12-04 в 21:22				</a>
+						</div>
+
+		<p>Благодарность за ссылку на букмекерскую контору 1win. Переъожу на официальный сайт 1win, чтобы сделать ставку, только через ваш сайт. Ни разу еще не сталкивался с тем, чтобы 1win зеркало не работало. Считаю, что у букмекера 1win впереди большое будущее, если не станут как все, а будут также хорошо относится к каждому игроку.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-20' data-commentid="20" data-postid="9" data-belowelement="div-comment-20" data-respondelement="respond" aria-label='Комментарий к записи Mihailkeeks'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-19">
+				<div id="div-comment-19" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Vikach</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-19">
+			2019-12-04 в 15:24				</a>
+						</div>
+
+		<p>Играю в 1win уже год, потому что здесь есть всё что нужно. Продуманная линия ставок,хорошее разнообразие видов спорта, высокие коэффициенты и удобный вывод денег. Отдельное спасибо 1win зеркало за киберспортивные соревнования! В общем, даже не знаю к чему придраться. Опять же, всегда доступны прямые трансляции соревнований. Получая доступ к рабочему зеркалу 1win, ты получаешь доступ ко всему и сразу. Большим плюсом считаю наличие мобильной версии сайта и приложения для смартфонов. Рекомендую всем!</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-19' data-commentid="19" data-postid="9" data-belowelement="div-comment-19" data-respondelement="respond" aria-label='Комментарий к записи Vikach'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-18">
+				<div id="div-comment-18" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Lida</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-18">
+			2019-12-03 в 15:55				</a>
+						</div>
+
+		<p>1win букмекерская контора позволяет делать ставки с хорошими коэффициентами. Плюс 1win дает самый большой бонус при регистрации, если не ошибаюсь. Пока зарегистрировалась в 1win, получила свой бонус и уже почти отыграла его, теперь жалею, что не максимум залила на первый деп.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-18' data-commentid="18" data-postid="9" data-belowelement="div-comment-18" data-respondelement="respond" aria-label='Комментарий к записи Lida'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-17">
+				<div id="div-comment-17" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Ric</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-17">
+			2019-12-01 в 21:13				</a>
+						</div>
+
+		<p>1win букмекерская контора мне понравилась сразу же. И бонус отличный при регистрации с промокодом, и сайт интереснее выглядит, а не как будто ему лет 20-30 уже. Хорошие коэффициенты, вовремя платят. Проблему с доступом к официальному сайту 1win решил, когда нашел 1win зеркало, только через него и захожу теперь.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-17' data-commentid="17" data-postid="9" data-belowelement="div-comment-17" data-respondelement="respond" aria-label='Комментарий к записи Ric'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-16">
+				<div id="div-comment-16" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Sergei</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-16">
+			2019-11-25 в 00:37				</a>
+						</div>
+
+		<p>1win зеркало прочно заняло свою нишу стабильной молодой букмекерской компании. Когда 1win букмекерская контора появилась на рынке, игроки не очень доверяли ей, особенно после бешенных бонусов на первый депозит &#8212; 50 000 рублей. Ни одна БК еще не давала столько денег при регистрации. Но 1win не потерялась, а игроков в ней постоянно прибавляется. Поэтому хорошо, что есть 1win зеркало, всегда можно зайти и сделать ставку.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-16' data-commentid="16" data-postid="9" data-belowelement="div-comment-16" data-respondelement="respond" aria-label='Комментарий к записи Sergei'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-15">
+				<div id="div-comment-15" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">master</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-15">
+			2019-11-21 в 14:39				</a>
+						</div>
+
+		<p>Есть аккаунты во многих популярных бк, но 1win букмекерская контора как-то сразу завоевала мое полное внимание. Очень удобный сайт, без перегрузок и лишней информации, хорошие коэффициенты, не ниже, чем у популярных, а то и выше. Да и 1win зеркало блокируют не так часто, как тот же х.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-15' data-commentid="15" data-postid="9" data-belowelement="div-comment-15" data-respondelement="respond" aria-label='Комментарий к записи master'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-14">
+				<div id="div-comment-14" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Илья</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-14">
+			2019-11-16 в 15:20				</a>
+						</div>
+
+		<p>Даже и не знал такой конторы, случайно в каком-то обзоре прочитал про бонус по 1win промокоду и захотел зарегистрироваться. Но не смог найти официальный сайт букмекерской конторы 1win, пришлосб изучать, что такое зеркало 1win и регистрироваться через него.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-14' data-commentid="14" data-postid="9" data-belowelement="div-comment-14" data-respondelement="respond" aria-label='Комментарий к записи Илья'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-13">
+				<div id="div-comment-13" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">leM</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-13">
+			2019-11-16 в 08:11				</a>
+						</div>
+
+		<p>1win зеркало найти вовремя большая редкость. Постоянно есть проблемы перед началом интересного и важного матча найти рабочее зеркало 1win, чтобы успеть сделать ставку. Сайты в выдаче периодически подсовывают непонятные ссылки, которые перебрасывают или на официальные конторы, или на подозрительные ресурсы. А мне нравится ставить в 1win, поэтому приходится потрудиться, чтобы найти рабочее зеркало 1Вин.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-13' data-commentid="13" data-postid="9" data-belowelement="div-comment-13" data-respondelement="respond" aria-label='Комментарий к записи leM'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-12">
+				<div id="div-comment-12" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Roma</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-12">
+			2019-11-15 в 00:53				</a>
+						</div>
+
+		<p>Интересно, что найти 1win зеркало проще, чем остальных контор. Связано это, скорее всего, с молодостью БК 1win, поэтому так не блокируют сайты с зеркалом 1win. Но это и хорошо, потому что сама контора 1Вин нравится мне адекватностью, вроде бы честно выводят все деньги, которые нужно. Да и у тех поддержки отношение нормальное</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-12' data-commentid="12" data-postid="9" data-belowelement="div-comment-12" data-respondelement="respond" aria-label='Комментарий к записи Roma'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-11">
+				<div id="div-comment-11" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">holodnig</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-11">
+			2019-11-14 в 03:05				</a>
+						</div>
+
+		<p>1win зеркало действительно выручает, когда нужно быстро попасть на сайт бк, а официальный сайт висит или заблокирован. Зеркал 1win очень много и в поиске, и во всяких социальных сетях, но я предпочитаю брать ссылка на 1win зеркало на нормальных, а не спамных ресурсах, так как переживаю за безопасность своих данных и финансовых средств. Вашему ресурсу доверяю, поэтому всегда перехожу по 1win зеркало.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-11' data-commentid="11" data-postid="9" data-belowelement="div-comment-11" data-respondelement="respond" aria-label='Комментарий к записи holodnig'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-10">
+				<div id="div-comment-10" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Kiki</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-10">
+			2019-11-11 в 04:55				</a>
+						</div>
+
+		<p>Решила зарегистрироваться в 1win и не смогла найти нигде рабочее зеркало 1win. Некоторые сайты в выдаче выглядят такими страшными и запущенными, что нет уверенности, что там действительно рабочий рабочий вход в 1win. Поэтому перешла к вам на сайт 1win зеркало, чтобы найти реально рабочее зеркало. И все получилось, спасибо. Еще и промокод 1win взяла для бонуса</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-10' data-commentid="10" data-postid="9" data-belowelement="div-comment-10" data-respondelement="respond" aria-label='Комментарий к записи Kiki'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-9">
+				<div id="div-comment-9" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Eric</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-9">
+			2019-11-09 в 07:06				</a>
+						</div>
+
+		<p>1win зеркало неплохой вариант для досуга, если любите азартные игры и ставки на спорт. Я вот люблю под какой-нибудь интересный матч сделать ставку, тогда накал страстей при просмотре запредельный. 1win зеркало выручает в такие моменты, когда основной сайт не работает, а матч уже вот-вот начнется. Приходится лезть в гугл и находить 1win зеркало, чтобы попасть на официальный ресурс. Хорошо, что ваше зеркало 1Вин всегда работает!</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-9' data-commentid="9" data-postid="9" data-belowelement="div-comment-9" data-respondelement="respond" aria-label='Комментарий к записи Eric'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-8">
+				<div id="div-comment-8" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">AnthonyTiz</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-8">
+			2019-11-09 в 02:40				</a>
+						</div>
+
+		<p>Как часто блокируют 1win зеркало? Не хочется регистрироваться в конторе, чтобы потом тратить полдня на поиск рабочего зеркала 1win. </p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-8' data-commentid="8" data-postid="9" data-belowelement="div-comment-8" data-respondelement="respond" aria-label='Комментарий к записи AnthonyTiz'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-7">
+				<div id="div-comment-7" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Ivanutelt</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-7">
+			2019-11-08 в 23:10				</a>
+						</div>
+
+		<p>Зеркало рабочее 1win имеет русскоязычную версию, компания принимает игроков из стран бывшего СССР и считает ее своей целевой аудиторией. Хотя из-за ужесточения российского законодательства оператор не имеет права работать на территории России и уже потерял существенную часть рынка.<br />
+Несмотря на это, БК 1win остается на виду русскоязычной публики благодаря агрессивным рекламным кампаниям и регулярному обновлению «зеркал».<br />
+Из плюсов зеркала 1win могут отметить: гарантированные и моментальные выплаты, 130% бонус на первый депозит, огромную витрину акций и бонусных вознаграждений.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-7' data-commentid="7" data-postid="9" data-belowelement="div-comment-7" data-respondelement="respond" aria-label='Комментарий к записи Ivanutelt'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-6">
+				<div id="div-comment-6" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Hup</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-6">
+			2019-11-08 в 22:02				</a>
+						</div>
+
+		<p>В данной БК 1win играю уже около года, никаких нареканий , либо проблем не возникало. Зачисление на счет через любую платежную систему происходит максимально быстро. Так же и с выводом выигранных денег, все быстро и без проблем ( На счет больших сумм не знаю, максимальная сумма вывода составляла 50к). Что по поводу коэф. , по моему мнению 1win самая лучшая БК с самыми большими коэф. на тот или иной исход в матчах. Иногда приходится потрудиться, чтобы найти 1win зеркало, но у вас оно всегда рабочее!</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-6' data-commentid="6" data-postid="9" data-belowelement="div-comment-6" data-respondelement="respond" aria-label='Комментарий к записи Hup'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-5">
+				<div id="div-comment-5" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Anthon</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-5">
+			2019-11-06 в 22:18				</a>
+						</div>
+
+		<p>1win неплохая контора из молодых БК. Тем более, у них самый большой бонус на первый депозит по 1win промокоду &#8212; 50 000. Больше таких не встречал. Да, многие возразят, что попробуй отыграть эти деньги в 1win, но мое мнение такое &#8212; лучше отыграть 50 000 рублей, чем 1 000 с одинаковыми сложностями. Жаль, что иногда блокируют 1win рабочее зеркало, но, надеюсь, на вашем сайте будет всегда рабочий вход.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-5' data-commentid="5" data-postid="9" data-belowelement="div-comment-5" data-respondelement="respond" aria-label='Комментарий к записи Anthon'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-4">
+				<div id="div-comment-4" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">AnthonGab</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-4">
+			2019-11-06 в 14:53				</a>
+						</div>
+
+		<p>1win зеркало помогает найти рабочий вход в бк 1вин. Иногда бывает тружно найти сайт 1win, но зеркало всегда выручает, спасибо. Я уже давно делаю ставки в 1win, почти с появления этой конторы и меня полностью устраивает. Читал негативные отзывы про блокировку аккаунтов иногда, но сам не сталкивался. Да и большинство тех, кто оставляет жалобы на 1win &#8212; это или школьники, или вилочники, которых служба безопасности вычисляет сразу же. Конечно, в таком случае 1win будет блочить аккаунт. А спокойных, не нарушающих закон, пользователей они не трогают. Так что и дальше продолжу пользоваться 1win зеркало.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-4' data-commentid="4" data-postid="9" data-belowelement="div-comment-4" data-respondelement="respond" aria-label='Комментарий к записи AnthonGab'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment even thread-even depth-1" id="comment-3">
+				<div id="div-comment-3" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">antik</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-3">
+			2019-10-31 в 10:52				</a>
+						</div>
+
+		<p>Зарегистрировался на сайте через 1win зеркало. Абсолютно все знакомые, которые интересуются азартными играми, говорят только положительные отзывы о 1win. В плюсах огромный бонус по 1win промокоду, довольно быстрый вывод и пополнение. Тех поддержка помогает, чем может. Да, не всегда можно найти рабочее зеркало 1win, но на вашем сайте оно постоянно актуальное. Никаких проблем со входом в 1win зеркало нет для меня теперь.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-3' data-commentid="3" data-postid="9" data-belowelement="div-comment-3" data-respondelement="respond" aria-label='Комментарий к записи antik'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+		<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-2">
+				<div id="div-comment-2" class="comment-body">
+				<div class="comment-author vcard">
+						<cite class="fn">Nedved</cite><span class="says">:</span>		</div>
+		
+		<div class="comment-meta commentmetadata"><a href="https://1win-zerkalo.ru/#comment-2">
+			2019-10-31 в 00:50				</a>
+						</div>
+
+		<p>1win зеркало часто выручает, когда нужно срочно сделать ставку, а официальный сайт 1win не работает. Из-за законов, люди вынуждены пользоваться только тем, чем разрешает государство, а хочется использовать нормальные букмекерские конторы как 1win. Радует, что на вашем сайте постоянно работает зеркало 1win, без проблем всегда можно получить доступ.</p>
+
+		<div class="reply"><a rel='nofollow' class='comment-reply-link' href='#comment-2' data-commentid="2" data-postid="9" data-belowelement="div-comment-2" data-respondelement="respond" aria-label='Комментарий к записи Nedved'>Ответить</a></div>
+				</div>
+				</li><!-- #comment-## -->
+	</ol>
+
+	<div class="navigation">
+		<div class="alignleft"></div>
+		<div class="alignright"></div>
+	</div>
+
+	<div id="respond" class="comment-respond">
+		<h3 id="reply-title" class="comment-reply-title">Добавить комментарий <small><a rel="nofollow" id="cancel-comment-reply-link" href="/#respond" style="display:none;">Отменить ответ</a></small></h3>			<form action="https://1win-zerkalo.ru/wp-comments-post.php" method="post" id="commentform" class="comment-form">
+				<p class="comment-notes"><span id="email-notes">Ваш e-mail не будет опубликован.</span></p><p class="comment-form-comment"><label for="comment">Комментарий</label> <textarea id="comment" name="comment" cols="45" rows="8" maxlength="65525" required="required"></textarea></p><p class="comment-form-author"><label for="author">Имя</label> <input id="author" name="author" type="text" value="" size="30" maxlength="245" /></p>
+<p class="form-submit"><input name="submit" type="submit" id="submit" class="submit" value="Отправить комментарий" /> <input type='hidden' name='comment_post_ID' value='9' id='comment_post_ID' />
+<input type='hidden' name='comment_parent' id='comment_parent' value='0' />
+</p>			</form>
+			</div><!-- #respond -->
+	      </div>
+
+    </article>
+    <aside id="sidebar" itemscope itemtype="http://schema.org/WPSideBar">
+
+      <div class="promo-block">
+        <h3>Получить бонус на депозит</h3>
+        <div id="copyme">1wintor</div>
+        <button type="button" class="btn" data-clipboard-action="copy" data-clipboard-target="#copyme">Скопировать промокод</button>
+      </div>
+      <table class="table_info">
+        <tbody>
+          <tr>
+            <td>1win промокод</td>
+            <td>1wintor</td>
+          </tr>
+          <tr>
+            <td>Год основания</td>
+            <td>2016</td>
+          </tr>
+          <tr>
+            <td>Страна</td>
+            <td>Кюрасао</td>
+          </tr>
+          <tr>
+            <td>Валюты счетов</td>
+            <td>USD, EUR, RUB</td>
+           </tr>
+          <tr>
+            <td>Платежные системы</td>
+            <td>VISA, Mastercard, Webmoney, Яндекс.Деньги, Qiwi, Мегафон, tele2, МТС, Билайн</td>
+          </tr>
+          <tr>
+            <td>Мобильные приложения</td>
+            <td>android и ios</td>
+          </tr>
+          <tr>
+            <td>Ставки Live</td>
+            <td>есть</td>
+          </tr>
+          <tr>
+            <td>Видеотрансляции матчей</td>
+            <td>нет</td>
+          </tr>
+          <tr>
+            <td>Минимальная ставка</td>
+            <td>1 руб</td>
+          </tr>
+          <tr>
+            <td>Виртуальный спорт</td>
+            <td>нет</td>
+          </tr>
+          <tr>
+            <td>Тотализатор</td>
+            <td>нет</td>
+          </tr>
+          <tr>
+            <td>Служба поддержки</td>
+            <td>E-mail, Телефон, Live-chat</td>
+          </tr>
+          <tr>
+            <td>Ставки MULTI-LIVE</td>
+            <td>нет</td>
+          </tr>
+          <tr>
+            <td>Мобильная версия</td>
+            <td>нет</td>
+          </tr>
+        </tbody>
+      </table>
+    </aside>
+  </div>
+  <div class="box c1">
+
+  </div>
+</section>
+</main>
+<footer  itemscope itemtype="http://schema.org/WPFooter">
+  <p>
+    Сайт 1win зеркало рабочее на сегодня &#8212; актуальная ссылка на 1Вин не принимает ставки на спорт и несет исключительно ознакомительную функцию.
+  </p>
+</footer>
+
+<script>
+$(document).ready(function() {
+   $('a[href^="#"]').click(function () {
+     elementClick = $(this).attr("href");
+     destination = $(elementClick).offset().top;
+     if($.browser.safari){
+       $('body').animate( { scrollTop: destination }, 1100 );
+     }else{
+       $('html').animate( { scrollTop: destination }, 1100 );
+     }
+     return false;
+   });
+ });
+</script>
+
+<script type="application/ld+json">
+    { "@context": "https://schema.org", "@type": "FAQPage", "mainEntity": [
+      {
+      "@type": "Question",
+      "name": "1win зеркало - в чем отличие от официального сайта бк?",
+      "acceptedAnswer": {
+        "@type": "Answer",
+        "text": "1win зеркало отличается от основного сайта БК 1Вин только доменом (набор букв в адресной строке). В остальном, это полная копия букмекерской конторы 1win, со всеми доступами к личным кабинетам, возможностью регистрироваться, делать ставки, выводить и пополнять средства. " }
+      },
+      {
+      "@type": "Question",
+      "name": "Как найти зеркало 1win?",
+      "acceptedAnswer": {
+        "@type": "Answer",
+        "text": "На нашем сайте уже есть ссылка на зеркало 1win. Переходите по ней и вы гарантировано попадете на официальное зеркало букмекера 1win. В ином случае, зеркало 1win возможно найти в любой поисковой системе или социальных сетях." }
+      },
+      {
+      "@type": "Question",
+      "name": "Безопасно ли регистрироваться через 1win зеркало?",
+      "acceptedAnswer": {
+        "@type": "Answer",
+        "text": "Наше 1win зеркало абсолютно безопасно и является официальным. Вы безопасно сможете завести аккаунт, войти под своим логим или паролем, если регистрировались раньше, внести депозит или снять выигрыш. " }
+      }
+    ]}
+</script>
+
+<script src="https://cdnjs.cloudflare.com/ajax/libs/clipboard.js/2.0.4/clipboard.min.js"></script>
+<script>
+	var cb = new ClipboardJS('.btn'); // класс кнопки
+	cb.on('success', function(event){
+		event.clearSelection();
+		    event.trigger.textContent = 'Промокод скопирован';
+		    window.setTimeout(function() {
+		        event.trigger.textContent = 'Копировать промокод';
+		    }, 3000);
+				});
+	cb.on('success', function(event){
+					$('.btn').addClass('green');
+          window.setTimeout(function() {
+  		    $('.btn').RemoveClass('green');
+  		    }, 3000);
+				});
+</script>
+<style>.lwptoc .lwptoc_i A:hover,.lwptoc .lwptoc_i A:focus,.lwptoc .lwptoc_i A:active{color:#1e73be;border-color:#1e73be;}</style>
+<!-- This site is optimized with Phil Singleton's WP SEO Structured Data Plugin v2.6.10 - https://kcseopro.com/wordpress-seo-structured-data-schema-plugin/ -->
+<script type="application/ld+json">{
+    "@context": "http://schema.org/",
+    "@type": "WebSite",
+    "url": "https://1win-zerkalo.ru",
+    "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+    "alternateName": "\u0420\u0430\u0431\u043e\u0447\u0438\u0439 \u0432\u0445\u043e\u0434 \u0432 1win"
+}</script><script type="application/ld+json">{
+    "@context": "http://schema.org",
+    "@type": "Organization",
+    "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+    "logo": "https://1win-zerkalo.ru/wp-content/uploads/2019/10/logo.png",
+    "url": "https://1win-zerkalo.ru",
+    "contactPoint": {
+        "@type": "ContactPoint",
+        "telephone": null,
+        "contactType": "customer service",
+        "email": "",
+        "contactOption": "",
+        "areaServed": "",
+        "availableLanguage": null
+    },
+    "address": {
+        "@type": "PostalAddress",
+        "addressCountry": "Russian Federation",
+        "addressLocality": "\u041c\u043e\u0441\u043a\u0432\u0430",
+        "addressRegion": "\u041c\u043e\u0441\u043a\u0432\u0430",
+        "postalCode": null,
+        "streetAddress": null
+    }
+}</script><script type="application/ld+json">{
+    "@context": "http://schema.org",
+    "@type": "Event",
+    "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+    "startDate": "2019-01-01",
+    "endDate": "2019-12-31",
+    "description": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0435\u0448\u0438\u0442 \u0432\u0430\u0448\u0438 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b, \u0432\u0435\u0434\u044c \u0435\u0441\u043b\u0438 \u0431\u0435\u0442\u0442\u0435\u0440 \u0438\u0433\u0440\u0430\u0435\u0442 \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0438 c \u043d\u0435\u043b\u0438\u0446\u0435\u043d\u0437\u0438\u043e\u043d\u043d\u044b\u043c\u0438 \u0432 \u0420\u043e\u0441\u0441\u0438\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u043c\u0438 \u043a\u043e\u043d\u0442\u043e\u0440\u0430\u043c\u0438, \u043e\u0431\u044f\u0437\u0430\u0442\u0435\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u0442\u0430\u043d\u0435\u0442 \u043c\u043e\u043c\u0435\u043d\u0442, \u043a\u043e\u0433\u0434\u0430 \u0438\u0433\u0440\u043e\u043a \u0443\u0432\u0438\u0434\u0438\u0442 \u0441\u0442\u0440\u0430\u0448\u043d\u0443\u044e \u043d\u0430\u0434\u043f\u0438\u0441\u044c - \u00ab\u0421\u0430\u0439\u0442 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d\u00bb. \u0423\u0441\u043f\u043e\u043a\u0430\u0438\u0432\u0430\u0435\u043c: \u0432 \u0442\u0430\u043a\u043e\u0439 \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u0438 \u043f\u0430\u043d\u0438\u043a\u0430 \u2013 \u043b\u0438\u0448\u043d\u0435\u0435, \u0432\u0435\u0434\u044c \u0434\u0430\u043d\u043d\u044b\u0435 \u043d\u0435 \u0443\u0434\u0430\u043b\u0435\u043d\u044b, \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u043d\u0435 \u0430\u043d\u043d\u0443\u043b\u0438\u0440\u043e\u0432\u0430\u043d, \u0438\u0433\u0440\u0430\u0442\u044c \u0438 \u0432\u044b\u0432\u0435\u0441\u0442\u0438 \u0434\u0435\u043d\u044c\u0433\u0438 \u043f\u043e-\u043f\u0440\u0435\u0436\u043d\u0435\u043c\u0443 \u043c\u043e\u0436\u043d\u043e. \u0417\u0434\u0435\u0441\u044c \u043c\u044b \u0440\u0430\u0441\u0441\u043a\u0430\u0436\u0435\u043c \u043e \u0441\u043f\u043e\u0441\u043e\u0431\u0435 \u043e\u0431\u0445\u043e\u0434\u0430 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0438 \u0438 \u043f\u043e\u0434\u0435\u043b\u0438\u043c\u0441\u044f \u0441\u0441\u044b\u043b\u043a\u043e\u0439 \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0438\u0437\u0431\u0430\u0432\u0438\u0442 \u0432\u0430\u0441 \u043e\u0442 \u043f\u0440\u043e\u0431\u043b\u0435\u043c \u0441 \u0434\u043e\u0441\u0442\u0443\u043f\u043e\u043c \u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0443.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e - \u043c\u043e\u043b\u043e\u0434\u043e\u0439 \u0438 \u043f\u0435\u0440\u0441\u043f\u0435\u043a\u0442\u0438\u0432\u043d\u044b\u0439 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\r\n\r\n\u0411\u043e\u043b\u044c\u0448\u0430\u044f \u043f\u043b\u043e\u0442\u043d\u043e\u0441\u0442\u044c \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0446\u0438\u0438 \u043d\u0435 \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442, \u0447\u0442\u043e \u043d\u043e\u0432\u044b\u0445 \u0438\u0433\u0440\u043e\u043a\u043e\u0432 \u043d\u0430 \u0440\u044b\u043d\u043a\u0435 \u043d\u0435 \u043f\u043e\u044f\u0432\u0438\u0442\u0441\u044f. \u041d\u0430\u043e\u0431\u043e\u0440\u043e\u0442, \u0442\u0430\u043a\u0430\u044f \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u044f \u0441\u0442\u0438\u043c\u0443\u043b\u0438\u0440\u0443\u0435\u0442 \u0443\u043b\u0443\u0447\u0448\u0430\u0442\u044c\u0441\u044f \u0432\u0441\u0435\u0445 \u043e\u0431\u0438\u0442\u0430\u0442\u0435\u043b\u0435\u0439 \u043d\u0438\u0448\u0438. \u0418\u0433\u043e\u0440\u043d\u044b\u0439 \u0431\u0438\u0437\u043d\u0435\u0441 \u2013 \u043d\u0435 \u0438\u0441\u043a\u043b\u044e\u0447\u0435\u043d\u0438\u0435. \u041d\u0430\u043b\u0438\u0447\u0438\u0435 \u0441\u0438\u043b\u044c\u043d\u043e\u0433\u043e \u0438 \u043a\u0440\u0435\u043f\u043a\u043e\u0433\u043e \u0440\u044f\u0434\u0430 \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0442\u043e\u0432 \u043d\u0435 \u043f\u043e\u043c\u0435\u0448\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 1win \u0432 2018 \u0433\u043e\u0434\u0443 \u0433\u0440\u043e\u043c\u043a\u043e \u0432\u043e\u0440\u0432\u0430\u0442\u044c\u0441\u044f \u043d\u0430 \u043f\u0440\u043e\u0441\u0442\u043e\u0440\u044b \u0441\u043f\u043e\u0440\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a \u0432 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0435.\r\n\r\n\u0418\u0441\u043f\u043e\u043b\u044c\u0437\u0443\u0439\u0442\u0435 1win \u043f\u0440\u043e\u043c\u043e\u043a\u043e\u0434 | 1wintor | \u0434\u043b\u044f \u0431\u043e\u043d\u0443\u0441\u0430 \u0434\u043e 50 000 \u0440\u0443\u0431\u043b\u0435\u0439 \u043d\u0430 \u043f\u0435\u0440\u0432\u044b\u0439 \u0434\u0435\u043f\u043e\u0437\u0438\u0442!\r\n\r\n\u0411\u041a 1\u0412\u0438\u043d \u0431\u044b\u0441\u0442\u0440\u043e \u0441\u043e\u0431\u0440\u0430\u043b\u0430 \u0432\u043e\u043a\u0440\u0443\u0433 \u0441\u0435\u0431\u044f \u0438\u0433\u0440\u043e\u043a\u043e\u0432, \u0436\u0430\u0436\u0434\u0443\u0449\u0438\u0445 \u0438\u0441\u043f\u044b\u0442\u0430\u0442\u044c \u043d\u043e\u0432\u043e\u044f\u0432\u043b\u0435\u043d\u043d\u043e\u0433\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430. \u041a\u043e\u043c\u043f\u0430\u043d\u0438\u044f \u043d\u0435 \u043f\u043e\u0434\u0432\u0435\u043b\u0430 \u0434\u043e\u0432\u0435\u0440\u0438\u0432\u0448\u0438\u0445\u0441\u044f \u0438\u043c \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u0438 \u043f\u0440\u0435\u0434\u043b\u043e\u0436\u0438\u043b\u0430 \u0448\u0438\u0440\u043e\u043a\u0443\u044e \u043b\u0438\u043d\u0438\u044e \u0441\u0442\u0430\u0432\u043e\u043a \u043d\u0430 \u043f\u043e\u043f\u0443\u043b\u044f\u0440\u043d\u0435\u0439\u0448\u0438\u0435 \u0432\u0438\u0434\u044b \u0441\u043f\u043e\u0440\u0442\u0430, \u0432\u043a\u043b\u044e\u0447\u0430\u044f \u043a\u0438\u0431\u0435\u0440\u0441\u043f\u043e\u0440\u0442. \u041f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0440\u0430\u0441\u0442\u0443\u0449\u0430\u044f \u0430\u0443\u0434\u0438\u0442\u043e\u0440\u0438\u044f \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430 \u0438 \u043f\u043e\u043b\u043e\u0436\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0435 \u043e\u0442\u0437\u044b\u0432\u044b \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u2013 \u0434\u043e\u043a\u0430\u0437\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e, \u0447\u0442\u043e \u0432\u044b\u0431\u0440\u0430\u043d\u043d\u0430\u044f \u0441\u0442\u0440\u0430\u0442\u0435\u0433\u0438\u044f \u0440\u0430\u0437\u0432\u0438\u0442\u0438\u044f \u043a\u043e\u043c\u043f\u0430\u043d\u0438\u0438 \u0432\u0435\u0440\u043d\u0430\u044f.\r\n\r\n\u041e\u0434\u043d\u0430\u043a\u043e \u043d\u0435 \u0432\u0441\u0435 \u0442\u0430\u043a \u043f\u0440\u043e\u0441\u0442\u043e, \u043a\u0430\u043a \u043a\u0430\u0436\u0435\u0442\u0441\u044f: \u0437\u0430\u043a\u043e\u043d\u043e\u0434\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e \u0420\u043e\u0441\u0441\u0438\u0439\u0441\u043a\u043e\u0439 \u0424\u0435\u0434\u0435\u0440\u0430\u0446\u0438\u0438 \u0432\u0441\u044f\u0447\u0435\u0441\u043a\u0438 \u043f\u0440\u0435\u043f\u044f\u0442\u0441\u0442\u0432\u0443\u0435\u0442 \u0434\u0435\u044f\u0442\u0435\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0411\u041a, \u0441\u0442\u0430\u0440\u0430\u044f\u0441\u044c \u043e\u0442\u0445\u0432\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0439 \u043a\u0443\u0441\u043e\u043a \u0442\u043e\u0440\u0442\u0430 \u0438 \u0441\u043d\u0438\u0437\u0438\u0442\u044c \u0434\u043e\u0445\u043e\u0434\u044b \u043a\u0430\u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440, \u0442\u0430\u043a \u0438 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u0432. \u041a \u0441\u0447\u0430\u0441\u0442\u044c\u044e, \u043a\u0430\u043a\u043e\u0439 \u0431\u044b \u0432\u044b\u0441\u043e\u043a\u043e\u0439 \u043d\u0435 \u0431\u044b\u043b\u0430 \u0441\u043a\u043e\u0440\u043e\u0441\u0442\u044c \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u0432 \u0440\u0430\u0437\u0434\u0430\u0447\u0435 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043e\u043a \u043d\u0435\u0443\u0433\u043e\u0434\u043d\u044b\u043c \u0441\u0430\u0439\u0442\u0430\u043c, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u043d\u0430\u0439\u0434\u0435\u0442\u0441\u044f \u0432\u0441\u0435\u0433\u0434\u0430. \u0412 \u043d\u0430\u0448\u0435\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u2013 \u044d\u0442\u043e 1win \u0441\u0430\u0439\u0442 \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u0433\u0434\u0435 \u043c\u043e\u0436\u043d\u043e \u043f\u043e\u043b\u043d\u043e\u0446\u0435\u043d\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0436\u0434\u0430\u0442\u044c\u0441\u044f \u0443\u0441\u043b\u0443\u0433\u0430\u043c\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430, \u043d\u0435 \u0434\u0443\u043c\u0430\u044f \u043e \u0432\u043d\u0435\u0437\u0430\u043f\u043d\u043e\u0439 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0435.\r\n\r\n\u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u044b 1win\r\n\u0427\u0442\u043e \u0442\u0430\u043a\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0438 \u0437\u0430\u0447\u0435\u043c \u043e\u043d\u043e?\r\n\r\n\u0427\u0442\u043e\u0431\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 \u043e\u0444\u0438\u0446\u0438\u0430\u043b\u044c\u043d\u043e \u0440\u0430\u0431\u043e\u0442\u0430\u0442\u044c \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u043e\u0441\u0441\u0438\u0438, \u0435\u0439 \u043d\u0443\u0436\u043d\u043e \u043f\u0440\u043e\u0439\u0442\u0438 \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044e \u0432 \u0441\u043f\u0435\u0446\u0438\u0430\u043b\u044c\u043d\u043e\u0439 \u043e\u0440\u0433\u0430\u043d\u0438\u0437\u0430\u0446\u0438\u0438 \u2013 \u0426\u0423\u041f\u0418\u0421 (\u0426\u0435\u043d\u0442\u0440\u0435 \u0443\u0447\u0435\u0442\u0430 \u043f\u0435\u0440\u0435\u0432\u043e\u0434\u043e\u0432 \u0438\u043d\u0442\u0435\u0440\u0430\u043a\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a). \u0410 \u044d\u0442\u043e \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442 \u0443\u043f\u043b\u0430\u0442\u0443 \u0434\u043e\u043f\u043e\u043b\u043d\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0445 \u043d\u0430\u043b\u043e\u0433\u043e\u0432, \u0441\u043d\u0438\u0436\u0435\u043d\u0438\u0435 \u0441\u0443\u043c\u043c\u044b \u0432\u044b\u0438\u0433\u0440\u044b\u0448\u0435\u0439, \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u044b\u0439 \u043a\u043e\u043d\u0442\u0440\u043e\u043b\u044c. \u0412 \u0441\u043b\u0443\u0447\u0430\u0435, \u0435\u0441\u043b\u0438 \u0441\u043e\u0442\u0440\u0443\u0434\u043d\u0438\u043a\u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u043d\u0430\u0442\u044b\u043a\u0430\u044e\u0442\u0441\u044f \u043d\u0430 \u043d\u0435\u0437\u0430\u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u043d\u043d\u044b\u0439 \u0441\u0430\u0439\u0442 \u0411\u041a, \u0434\u043e\u0441\u0442\u0443\u043f \u043a \u043d\u0435\u043c\u0443 \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u0424 \u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442\u0441\u044f. \u041f\u0440\u043e\u0433\u0440\u0430\u043c\u043c\u0438\u0441\u0442\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440 \u0438\u0441\u043a\u0430\u043b\u0438 \u043b\u0430\u0437\u0435\u0439\u043a\u0443, \u043a\u0430\u043a \u043e\u0431\u043e\u0439\u0442\u0438 \u044d\u0442\u0443 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0443 \u0438 \u0434\u0430\u0442\u044c \u0441\u0432\u043e\u0438\u043c \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0432\u043e\u0437\u043c\u043e\u0436\u043d\u043e\u0441\u0442\u044c \u043c\u0430\u043a\u0441\u0438\u043c\u0430\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0434\u0438\u0442\u044c\u0441\u044f \u0438\u0433\u0440\u043e\u0439 \u0438 \u043f\u043e\u043b\u0443\u0447\u0438\u0442\u044c \u0437\u0430\u0441\u043b\u0443\u0436\u0435\u043d\u043d\u044b\u0439 \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u0432 \u043f\u043e\u043b\u043d\u043e\u043c \u043e\u0431\u044a\u0435\u043c\u0435. \u0412 \u0438\u0442\u043e\u0433\u0435, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u0431\u044b\u043b\u043e \u043d\u0430\u0439\u0434\u0435\u043d\u043e \u2013 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0441\u0430\u0439\u0442\u043e\u0432.\r\n\r\n1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u044d\u0442\u043e \u043f\u043e\u043b\u043d\u0430\u044f \u043a\u043e\u043f\u0438\u044f \u0441\u0430\u0439\u0442\u0430 \u0411\u041a, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0440\u0430\u0437\u043c\u0435\u0449\u0430\u0435\u0442\u0441\u044f \u043d\u0430 \u0432\u0438\u0434\u043e\u0438\u0437\u043c\u0435\u043d\u0435\u043d\u043d\u043e\u043c \u0440\u0435\u0437\u0435\u0440\u0432\u043d\u043e\u043c URL-\u0435. \u041e\u0431\u044b\u0447\u043d\u043e \u044d\u0442\u043e \u0431\u0435\u0441\u0441\u0432\u044f\u0437\u043d\u044b\u0439 \u043d\u0430\u0431\u043e\u0440 \u0441\u0438\u043c\u0432\u043e\u043b\u043e\u0432, \u043d\u0438\u043a\u0430\u043a \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0438\u043c\u0435\u043d\u0435\u043c \u043e\u0441\u043d\u043e\u0432\u043d\u043e\u0433\u043e \u0434\u043e\u043c\u0435\u043d\u0430 \u0411\u041a. \u0422\u0430\u043a\u0438\u043c \u043e\u0431\u0440\u0430\u0437\u043e\u043c, \u0437\u0430\u0434\u0430\u0447\u0430 \u0434\u043e\u0431\u0430\u0432\u043b\u0435\u043d\u0438\u044f \u0430\u0434\u0440\u0435\u0441\u0430 \u0432 \u0441\u043f\u0438\u0441\u043e\u043a \u0437\u0430\u043f\u0440\u0435\u0449\u0435\u043d\u043d\u044b\u0445 \u0443\u0441\u043b\u043e\u0436\u043d\u044f\u0435\u0442\u0441\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0443 \u043d\u0443\u0436\u043d\u043e \u0432\u0440\u0435\u043c\u044f, \u0447\u0442\u043e\u0431\u044b \u043d\u0430\u0439\u0442\u0438 \u0438 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u0442\u044c \u0430\u0434\u0440\u0435\u0441. \u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0435 \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u043f\u043e\u0437\u0432\u043e\u043b\u044f\u044e\u0442 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0441\u043f\u043e\u043a\u043e\u0439\u043d\u043e \u0438\u0433\u0440\u0430\u0442\u044c \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0430\u0445 \u043d\u0435 \u0432 \u0443\u0449\u0435\u0440\u0431 \u0441\u0432\u043e\u0438\u043c \u0438\u043d\u0442\u0435\u0440\u0435\u0441\u0430\u043c.\r\n\r\n\u0415\u0441\u0442\u044c \u0435\u0449\u0435 \u0434\u0432\u0430 \u0432\u043e\u043f\u0440\u043e\u0441\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0447\u0430\u0441\u0442\u043e \u0437\u0430\u0434\u0430\u044e\u0442 \u0431\u0435\u0442\u0442\u0435\u0440\u044b-\u043d\u043e\u0432\u0438\u0447\u043a\u0438. \u0414\u0430\u0435\u043c \u043d\u0430 \u043d\u0438\u0445 \u043e\u0442\u0432\u0435\u0442\u044b:\r\n\r\n\u041a\u0430\u0436\u0434\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0442\u043b\u0438\u0447\u0430\u0435\u0442\u0441\u044f \u043e\u0434\u043d\u043e \u043e\u0442 \u0434\u0440\u0443\u0433\u043e\u0433\u043e?\r\n\u041d\u0435\u0442, \u0432\u0441\u0435 \u0441\u0430\u0439\u0442\u044b \u0430\u0431\u0441\u043e\u043b\u044e\u0442\u043d\u043e \u0438\u0434\u0435\u043d\u0442\u0438\u0447\u043d\u044b. \u0411\u0430\u0437\u044b \u0434\u0430\u043d\u043d\u044b\u0445 \u043f\u043e\u043b\u043d\u043e\u0441\u0442\u044c\u044e \u043a\u043e\u043f\u0438\u0440\u0443\u044e\u0442\u0441\u044f \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f, \u0438 \u043f\u043e\u0441\u0435\u0442\u0438\u0442\u0435\u043b\u044c \u0432\u0441\u0435\u0433\u0434\u0430 \u0432\u0438\u0434\u0438\u0442 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0443\u044e \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044e. \u0421\u0440\u0430\u0432\u043d\u0438\u0432\u0430\u0442\u044c \u0441\u0430\u0439\u0442\u044b \u043d\u0430 \u0440\u0430\u0437\u043d\u044b\u0445 \u0430\u0434\u0440\u0435\u0441\u0430\u0445 \u0431\u0435\u0441\u0441\u043c\u044b\u0441\u043b\u0435\u043d\u043d\u043e, \u043f\u043e\u0442\u043e\u043c\u0443 \u0447\u0442\u043e \u043d\u0438\u043a\u0430\u043a\u043e\u0439 \u0440\u0430\u0437\u043d\u0438\u0446\u044b \u043d\u0435\u0442.\r\n\u041c\u043d\u0435 \u043f\u0440\u0438\u0434\u0435\u0442\u0441\u044f \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u0442\u044c\u0441\u044f \u0437\u0430\u043d\u043e\u0432\u043e, \u0435\u0441\u043b\u0438 \u043e\u0447\u0435\u0440\u0435\u0434\u043d\u0443\u044e \u0441\u0441\u044b\u043b\u043a\u0443 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u044e\u0442?\r\n\u0412\u0441\u044f \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044f \u0438\u0437 \u043b\u0438\u0447\u043d\u043e\u0433\u043e \u043a\u0430\u0431\u0438\u043d\u0435\u0442\u0430 \u043d\u0430 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e. \u0420\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044f \u043f\u0440\u043e\u0445\u043e\u0434\u0438\u0442 \u0432\u0441\u0435\u0433\u043e \u043e\u0434\u0438\u043d \u0440\u0430\u0437, \u0438 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044e \u043d\u0435 \u043d\u0443\u0436\u043d\u043e \u0431\u0435\u0441\u043f\u043e\u043a\u043e\u0438\u0442\u044c\u0441\u044f \u043e \u0441\u043e\u0445\u0440\u0430\u043d\u043d\u043e\u0441\u0442\u0438 \u0441\u0432\u043e\u0435\u0433\u043e \u0430\u043a\u043a\u0430\u0443\u043d\u0442\u0430.\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u043f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442 \u0432 \u043e\u0434\u0438\u043d \u043a\u043b\u0438\u043a\r\n\r\n\u041f\u0440\u043e\u0439\u0434\u0435\u0442 \u043a\u0430\u043a\u043e\u0435-\u0442\u043e \u0432\u0440\u0435\u043c\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440 \u0432 \u043b\u044e\u0431\u043e\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u0434\u043e\u0431\u0435\u0440\u0435\u0442\u0441\u044f \u0434\u043e \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0438 \u0431\u0435\u0437\u0436\u0430\u043b\u043e\u0441\u0442\u043d\u043e \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442 \u0435\u0433\u043e. \u041f\u043e\u0441\u043b\u0435 \u044d\u0442\u043e\u0433\u043e \u043f\u0435\u0440\u0435\u0434 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u043c \u043f\u043e\u044f\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u0437\u0430\u0434\u0430\u0447\u0430 - \u043d\u0430\u0439\u0442\u0438 \u043d\u043e\u0432\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f. \u041f\u043e \u0440\u0430\u0437\u043d\u044b\u043c \u043f\u0440\u0438\u0447\u0438\u043d\u0430\u043c, \u043f\u043e\u0440\u043e\u0439, \u043d\u0430 \u043f\u043e\u0438\u0441\u043a\u0438 \u043f\u0440\u0438\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u043d\u0435 \u043e\u0434\u0438\u043d \u0447\u0430\u0441: \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0432\u044b\u0434\u0430\u0435\u0442 \u043f\u043e\u0438\u0441\u043a, \u0443\u0436\u0435 \u043d\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b, \u0438\u043b\u0438 \u0432\u0435\u0434\u0443\u0442 \u043d\u0430 \u043a\u0430\u043a\u043e\u0439-\u0442\u043e \u043d\u0435\u043f\u043e\u043d\u044f\u0442\u043d\u044b\u0439 \u0441\u0430\u0439\u0442, \u0441\u043e\u0432\u0441\u0435\u043c \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u043e\u0439 1\u0412\u0438\u043d. \u041d\u0443\u0436\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0443\u0441\u043a\u043e\u043b\u044c\u0437\u0430\u0435\u0442.\r\n\r\n\u0420\u0435\u0448\u0435\u043d\u0438\u0435 \u044d\u0442\u043e\u0439 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b \u043d\u0430\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0437\u0434\u0435\u0441\u044c. \u041d\u0430\u0448 \u0441\u0430\u0439\u0442 \u2013 \u0441\u043f\u0430\u0441\u0430\u0442\u0435\u043b\u044c\u043d\u044b\u0439 \u043a\u0440\u0443\u0433 \u0434\u043b\u044f \u0442\u0435\u0445, \u043a\u0442\u043e \u0443\u0432\u044f\u0437 \u0432 \u043d\u0435\u0434\u0440\u0430\u0445 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0430 \u0432 \u043f\u043e\u0438\u0441\u043a\u0430\u0445 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0445 \u0437\u0435\u0440\u043a\u0430\u043b \u0411\u041a. \u041a\u0430\u043a\u0438\u043c \u0431\u044b \u0431\u044b\u0441\u0442\u0440\u044b\u043c \u043d\u0438 \u0431\u044b\u043b \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440, \u043d\u0430 \u044d\u0442\u043e\u0439 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0435 \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0431\u043d\u043e\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u043c\u0433\u043d\u043e\u0432\u0435\u043d\u043d\u043e, \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044c \u0434\u0430\u0436\u0435 \u043d\u0435 \u043f\u043e\u0439\u043c\u0435\u0442, \u0447\u0442\u043e \u043f\u0440\u0435\u0434\u044b\u0434\u0443\u0449\u0438\u0439 \u0430\u0434\u0440\u0435\u0441 \u0431\u044b\u043b \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d.\r\n\r\n\u0413\u043b\u0430\u0432\u043d\u043e\u0435 \u043f\u0440\u0435\u0438\u043c\u0443\u0449\u0435\u0441\u0442\u0432\u043e \u043d\u0430\u0448\u0435\u0433\u043e \u0441\u0430\u0439\u0442\u0430 \u2013 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e\u0435 \u043e\u0442\u0441\u043b\u0435\u0436\u0438\u0432\u0430\u043d\u0438\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u0438. \u0414\u043e\u0431\u0430\u0432\u0438\u0432 \u044d\u0442\u0443 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0443 \u0432 \u0437\u0430\u043a\u043b\u0430\u0434\u043a\u0438, \u0432\u044b \u0431\u0443\u0434\u0435\u0442\u0435 \u0432 \u043a\u0443\u0440\u0441\u0435, \u0433\u0434\u0435 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0441\u0435\u0439\u0447\u0430\u0441, \u0438 \u043f\u043e\u0432\u043e\u0434 \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0435 \u0432\u0440\u0435\u043c\u044f \u043d\u0430 \u0448\u0442\u0443\u0440\u043c \u043f\u043e\u0438\u0441\u043a\u043e\u0432\u044b\u0445 \u0441\u0438\u0441\u0442\u0435\u043c \u043e\u0442\u043f\u0430\u0434\u0435\u0442 \u043d\u0430\u0432\u0441\u0435\u0433\u0434\u0430.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n\u041d\u0430\u0436\u043c\u0438\u0442\u0435 \u043a\u043d\u043e\u043f\u043a\u0443 \u0441 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u043c \u0437\u0435\u0440\u043a\u0430\u043b\u043e\u043c, \u0438 \u0432\u044b \u043f\u0435\u0440\u0435\u043d\u0435\u0441\u0435\u0442\u0435\u0441\u044c \u0432 \u0432\u043e\u043b\u0448\u0435\u0431\u043d\u044b\u0439 \u043c\u0438\u0440 1\u0412\u0438\u043d, \u0433\u0434\u0435 \u0432\u0430\u0441 \u0436\u0434\u0443\u0442 \u043a\u0440\u0443\u043f\u043d\u044b\u0435 \u043a\u043e\u044d\u0444\u0444\u0438\u0446\u0438\u0435\u043d\u0442\u044b, \u0431\u044b\u0441\u0442\u0440\u044b\u0435 \u0432\u044b\u043f\u043b\u0430\u0442\u044b \u0438 \u0448\u0438\u0440\u043e\u043a\u0430\u044f \u043b\u0438\u043d\u0438\u044f \u0441\u0442\u0430\u0432\u043e\u043a.",
+    "performer": {
+        "@type": "Person",
+        "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e"
+    },
+    "image": "https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-\u0437\u0435\u0440\u043a\u0430\u043b\u043e.png",
+    "location": {
+        "@type": "Place",
+        "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+        "address": "\u041c\u043e\u0441\u043a\u0432\u0430"
+    },
+    "url": "https://1win-zerkalo.ru"
+}</script><script type="application/ld+json">{
+    "@context": "http://schema.org",
+    "@type": "Review",
+    "datePublished": "2019-08-14",
+    "reviewBody": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0435\u0448\u0438\u0442 \u0432\u0430\u0448\u0438 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b, \u0432\u0435\u0434\u044c \u0435\u0441\u043b\u0438 \u0431\u0435\u0442\u0442\u0435\u0440 \u0438\u0433\u0440\u0430\u0435\u0442 \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0438 c \u043d\u0435\u043b\u0438\u0446\u0435\u043d\u0437\u0438\u043e\u043d\u043d\u044b\u043c\u0438 \u0432 \u0420\u043e\u0441\u0441\u0438\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u043c\u0438 \u043a\u043e\u043d\u0442\u043e\u0440\u0430\u043c\u0438, \u043e\u0431\u044f\u0437\u0430\u0442\u0435\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u0442\u0430\u043d\u0435\u0442 \u043c\u043e\u043c\u0435\u043d\u0442, \u043a\u043e\u0433\u0434\u0430 \u0438\u0433\u0440\u043e\u043a \u0443\u0432\u0438\u0434\u0438\u0442 \u0441\u0442\u0440\u0430\u0448\u043d\u0443\u044e \u043d\u0430\u0434\u043f\u0438\u0441\u044c - \u00ab\u0421\u0430\u0439\u0442 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d\u00bb. \u0423\u0441\u043f\u043e\u043a\u0430\u0438\u0432\u0430\u0435\u043c: \u0432 \u0442\u0430\u043a\u043e\u0439 \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u0438 \u043f\u0430\u043d\u0438\u043a\u0430 \u2013 \u043b\u0438\u0448\u043d\u0435\u0435, \u0432\u0435\u0434\u044c \u0434\u0430\u043d\u043d\u044b\u0435 \u043d\u0435 \u0443\u0434\u0430\u043b\u0435\u043d\u044b, \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u043d\u0435 \u0430\u043d\u043d\u0443\u043b\u0438\u0440\u043e\u0432\u0430\u043d, \u0438\u0433\u0440\u0430\u0442\u044c \u0438 \u0432\u044b\u0432\u0435\u0441\u0442\u0438 \u0434\u0435\u043d\u044c\u0433\u0438 \u043f\u043e-\u043f\u0440\u0435\u0436\u043d\u0435\u043c\u0443 \u043c\u043e\u0436\u043d\u043e. \u0417\u0434\u0435\u0441\u044c \u043c\u044b \u0440\u0430\u0441\u0441\u043a\u0430\u0436\u0435\u043c \u043e \u0441\u043f\u043e\u0441\u043e\u0431\u0435 \u043e\u0431\u0445\u043e\u0434\u0430 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0438 \u0438 \u043f\u043e\u0434\u0435\u043b\u0438\u043c\u0441\u044f \u0441\u0441\u044b\u043b\u043a\u043e\u0439 \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0438\u0437\u0431\u0430\u0432\u0438\u0442 \u0432\u0430\u0441 \u043e\u0442 \u043f\u0440\u043e\u0431\u043b\u0435\u043c \u0441 \u0434\u043e\u0441\u0442\u0443\u043f\u043e\u043c \u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0443.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e - \u043c\u043e\u043b\u043e\u0434\u043e\u0439 \u0438 \u043f\u0435\u0440\u0441\u043f\u0435\u043a\u0442\u0438\u0432\u043d\u044b\u0439 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\r\n\r\n\u0411\u043e\u043b\u044c\u0448\u0430\u044f \u043f\u043b\u043e\u0442\u043d\u043e\u0441\u0442\u044c \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0446\u0438\u0438 \u043d\u0435 \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442, \u0447\u0442\u043e \u043d\u043e\u0432\u044b\u0445 \u0438\u0433\u0440\u043e\u043a\u043e\u0432 \u043d\u0430 \u0440\u044b\u043d\u043a\u0435 \u043d\u0435 \u043f\u043e\u044f\u0432\u0438\u0442\u0441\u044f. \u041d\u0430\u043e\u0431\u043e\u0440\u043e\u0442, \u0442\u0430\u043a\u0430\u044f \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u044f \u0441\u0442\u0438\u043c\u0443\u043b\u0438\u0440\u0443\u0435\u0442 \u0443\u043b\u0443\u0447\u0448\u0430\u0442\u044c\u0441\u044f \u0432\u0441\u0435\u0445 \u043e\u0431\u0438\u0442\u0430\u0442\u0435\u043b\u0435\u0439 \u043d\u0438\u0448\u0438. \u0418\u0433\u043e\u0440\u043d\u044b\u0439 \u0431\u0438\u0437\u043d\u0435\u0441 \u2013 \u043d\u0435 \u0438\u0441\u043a\u043b\u044e\u0447\u0435\u043d\u0438\u0435. \u041d\u0430\u043b\u0438\u0447\u0438\u0435 \u0441\u0438\u043b\u044c\u043d\u043e\u0433\u043e \u0438 \u043a\u0440\u0435\u043f\u043a\u043e\u0433\u043e \u0440\u044f\u0434\u0430 \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0442\u043e\u0432 \u043d\u0435 \u043f\u043e\u043c\u0435\u0448\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 1win \u0432 2018 \u0433\u043e\u0434\u0443 \u0433\u0440\u043e\u043c\u043a\u043e \u0432\u043e\u0440\u0432\u0430\u0442\u044c\u0441\u044f \u043d\u0430 \u043f\u0440\u043e\u0441\u0442\u043e\u0440\u044b \u0441\u043f\u043e\u0440\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a \u0432 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0435.\r\n\r\n\u0418\u0441\u043f\u043e\u043b\u044c\u0437\u0443\u0439\u0442\u0435 1win \u043f\u0440\u043e\u043c\u043e\u043a\u043e\u0434 | 1wintor | \u0434\u043b\u044f \u0431\u043e\u043d\u0443\u0441\u0430 \u0434\u043e 50 000 \u0440\u0443\u0431\u043b\u0435\u0439 \u043d\u0430 \u043f\u0435\u0440\u0432\u044b\u0439 \u0434\u0435\u043f\u043e\u0437\u0438\u0442!\r\n\r\n\u0411\u041a 1\u0412\u0438\u043d \u0431\u044b\u0441\u0442\u0440\u043e \u0441\u043e\u0431\u0440\u0430\u043b\u0430 \u0432\u043e\u043a\u0440\u0443\u0433 \u0441\u0435\u0431\u044f \u0438\u0433\u0440\u043e\u043a\u043e\u0432, \u0436\u0430\u0436\u0434\u0443\u0449\u0438\u0445 \u0438\u0441\u043f\u044b\u0442\u0430\u0442\u044c \u043d\u043e\u0432\u043e\u044f\u0432\u043b\u0435\u043d\u043d\u043e\u0433\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430. \u041a\u043e\u043c\u043f\u0430\u043d\u0438\u044f \u043d\u0435 \u043f\u043e\u0434\u0432\u0435\u043b\u0430 \u0434\u043e\u0432\u0435\u0440\u0438\u0432\u0448\u0438\u0445\u0441\u044f \u0438\u043c \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u0438 \u043f\u0440\u0435\u0434\u043b\u043e\u0436\u0438\u043b\u0430 \u0448\u0438\u0440\u043e\u043a\u0443\u044e \u043b\u0438\u043d\u0438\u044e \u0441\u0442\u0430\u0432\u043e\u043a \u043d\u0430 \u043f\u043e\u043f\u0443\u043b\u044f\u0440\u043d\u0435\u0439\u0448\u0438\u0435 \u0432\u0438\u0434\u044b \u0441\u043f\u043e\u0440\u0442\u0430, \u0432\u043a\u043b\u044e\u0447\u0430\u044f \u043a\u0438\u0431\u0435\u0440\u0441\u043f\u043e\u0440\u0442. \u041f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0440\u0430\u0441\u0442\u0443\u0449\u0430\u044f \u0430\u0443\u0434\u0438\u0442\u043e\u0440\u0438\u044f \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430 \u0438 \u043f\u043e\u043b\u043e\u0436\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0435 \u043e\u0442\u0437\u044b\u0432\u044b \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u2013 \u0434\u043e\u043a\u0430\u0437\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e, \u0447\u0442\u043e \u0432\u044b\u0431\u0440\u0430\u043d\u043d\u0430\u044f \u0441\u0442\u0440\u0430\u0442\u0435\u0433\u0438\u044f \u0440\u0430\u0437\u0432\u0438\u0442\u0438\u044f \u043a\u043e\u043c\u043f\u0430\u043d\u0438\u0438 \u0432\u0435\u0440\u043d\u0430\u044f.\r\n\r\n\u041e\u0434\u043d\u0430\u043a\u043e \u043d\u0435 \u0432\u0441\u0435 \u0442\u0430\u043a \u043f\u0440\u043e\u0441\u0442\u043e, \u043a\u0430\u043a \u043a\u0430\u0436\u0435\u0442\u0441\u044f: \u0437\u0430\u043a\u043e\u043d\u043e\u0434\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e \u0420\u043e\u0441\u0441\u0438\u0439\u0441\u043a\u043e\u0439 \u0424\u0435\u0434\u0435\u0440\u0430\u0446\u0438\u0438 \u0432\u0441\u044f\u0447\u0435\u0441\u043a\u0438 \u043f\u0440\u0435\u043f\u044f\u0442\u0441\u0442\u0432\u0443\u0435\u0442 \u0434\u0435\u044f\u0442\u0435\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0411\u041a, \u0441\u0442\u0430\u0440\u0430\u044f\u0441\u044c \u043e\u0442\u0445\u0432\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0439 \u043a\u0443\u0441\u043e\u043a \u0442\u043e\u0440\u0442\u0430 \u0438 \u0441\u043d\u0438\u0437\u0438\u0442\u044c \u0434\u043e\u0445\u043e\u0434\u044b \u043a\u0430\u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440, \u0442\u0430\u043a \u0438 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u0432. \u041a \u0441\u0447\u0430\u0441\u0442\u044c\u044e, \u043a\u0430\u043a\u043e\u0439 \u0431\u044b \u0432\u044b\u0441\u043e\u043a\u043e\u0439 \u043d\u0435 \u0431\u044b\u043b\u0430 \u0441\u043a\u043e\u0440\u043e\u0441\u0442\u044c \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u0432 \u0440\u0430\u0437\u0434\u0430\u0447\u0435 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043e\u043a \u043d\u0435\u0443\u0433\u043e\u0434\u043d\u044b\u043c \u0441\u0430\u0439\u0442\u0430\u043c, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u043d\u0430\u0439\u0434\u0435\u0442\u0441\u044f \u0432\u0441\u0435\u0433\u0434\u0430. \u0412 \u043d\u0430\u0448\u0435\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u2013 \u044d\u0442\u043e 1win \u0441\u0430\u0439\u0442 \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u0433\u0434\u0435 \u043c\u043e\u0436\u043d\u043e \u043f\u043e\u043b\u043d\u043e\u0446\u0435\u043d\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0436\u0434\u0430\u0442\u044c\u0441\u044f \u0443\u0441\u043b\u0443\u0433\u0430\u043c\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430, \u043d\u0435 \u0434\u0443\u043c\u0430\u044f \u043e \u0432\u043d\u0435\u0437\u0430\u043f\u043d\u043e\u0439 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0435.\r\n\r\n\u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u044b 1win\r\n\u0427\u0442\u043e \u0442\u0430\u043a\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0438 \u0437\u0430\u0447\u0435\u043c \u043e\u043d\u043e?\r\n\r\n\u0427\u0442\u043e\u0431\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 \u043e\u0444\u0438\u0446\u0438\u0430\u043b\u044c\u043d\u043e \u0440\u0430\u0431\u043e\u0442\u0430\u0442\u044c \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u043e\u0441\u0441\u0438\u0438, \u0435\u0439 \u043d\u0443\u0436\u043d\u043e \u043f\u0440\u043e\u0439\u0442\u0438 \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044e \u0432 \u0441\u043f\u0435\u0446\u0438\u0430\u043b\u044c\u043d\u043e\u0439 \u043e\u0440\u0433\u0430\u043d\u0438\u0437\u0430\u0446\u0438\u0438 \u2013 \u0426\u0423\u041f\u0418\u0421 (\u0426\u0435\u043d\u0442\u0440\u0435 \u0443\u0447\u0435\u0442\u0430 \u043f\u0435\u0440\u0435\u0432\u043e\u0434\u043e\u0432 \u0438\u043d\u0442\u0435\u0440\u0430\u043a\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a). \u0410 \u044d\u0442\u043e \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442 \u0443\u043f\u043b\u0430\u0442\u0443 \u0434\u043e\u043f\u043e\u043b\u043d\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0445 \u043d\u0430\u043b\u043e\u0433\u043e\u0432, \u0441\u043d\u0438\u0436\u0435\u043d\u0438\u0435 \u0441\u0443\u043c\u043c\u044b \u0432\u044b\u0438\u0433\u0440\u044b\u0448\u0435\u0439, \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u044b\u0439 \u043a\u043e\u043d\u0442\u0440\u043e\u043b\u044c. \u0412 \u0441\u043b\u0443\u0447\u0430\u0435, \u0435\u0441\u043b\u0438 \u0441\u043e\u0442\u0440\u0443\u0434\u043d\u0438\u043a\u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u043d\u0430\u0442\u044b\u043a\u0430\u044e\u0442\u0441\u044f \u043d\u0430 \u043d\u0435\u0437\u0430\u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u043d\u043d\u044b\u0439 \u0441\u0430\u0439\u0442 \u0411\u041a, \u0434\u043e\u0441\u0442\u0443\u043f \u043a \u043d\u0435\u043c\u0443 \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u0424 \u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442\u0441\u044f. \u041f\u0440\u043e\u0433\u0440\u0430\u043c\u043c\u0438\u0441\u0442\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440 \u0438\u0441\u043a\u0430\u043b\u0438 \u043b\u0430\u0437\u0435\u0439\u043a\u0443, \u043a\u0430\u043a \u043e\u0431\u043e\u0439\u0442\u0438 \u044d\u0442\u0443 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0443 \u0438 \u0434\u0430\u0442\u044c \u0441\u0432\u043e\u0438\u043c \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0432\u043e\u0437\u043c\u043e\u0436\u043d\u043e\u0441\u0442\u044c \u043c\u0430\u043a\u0441\u0438\u043c\u0430\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0434\u0438\u0442\u044c\u0441\u044f \u0438\u0433\u0440\u043e\u0439 \u0438 \u043f\u043e\u043b\u0443\u0447\u0438\u0442\u044c \u0437\u0430\u0441\u043b\u0443\u0436\u0435\u043d\u043d\u044b\u0439 \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u0432 \u043f\u043e\u043b\u043d\u043e\u043c \u043e\u0431\u044a\u0435\u043c\u0435. \u0412 \u0438\u0442\u043e\u0433\u0435, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u0431\u044b\u043b\u043e \u043d\u0430\u0439\u0434\u0435\u043d\u043e \u2013 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0441\u0430\u0439\u0442\u043e\u0432.\r\n\r\n1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u044d\u0442\u043e \u043f\u043e\u043b\u043d\u0430\u044f \u043a\u043e\u043f\u0438\u044f \u0441\u0430\u0439\u0442\u0430 \u0411\u041a, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0440\u0430\u0437\u043c\u0435\u0449\u0430\u0435\u0442\u0441\u044f \u043d\u0430 \u0432\u0438\u0434\u043e\u0438\u0437\u043c\u0435\u043d\u0435\u043d\u043d\u043e\u043c \u0440\u0435\u0437\u0435\u0440\u0432\u043d\u043e\u043c URL-\u0435. \u041e\u0431\u044b\u0447\u043d\u043e \u044d\u0442\u043e \u0431\u0435\u0441\u0441\u0432\u044f\u0437\u043d\u044b\u0439 \u043d\u0430\u0431\u043e\u0440 \u0441\u0438\u043c\u0432\u043e\u043b\u043e\u0432, \u043d\u0438\u043a\u0430\u043a \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0438\u043c\u0435\u043d\u0435\u043c \u043e\u0441\u043d\u043e\u0432\u043d\u043e\u0433\u043e \u0434\u043e\u043c\u0435\u043d\u0430 \u0411\u041a. \u0422\u0430\u043a\u0438\u043c \u043e\u0431\u0440\u0430\u0437\u043e\u043c, \u0437\u0430\u0434\u0430\u0447\u0430 \u0434\u043e\u0431\u0430\u0432\u043b\u0435\u043d\u0438\u044f \u0430\u0434\u0440\u0435\u0441\u0430 \u0432 \u0441\u043f\u0438\u0441\u043e\u043a \u0437\u0430\u043f\u0440\u0435\u0449\u0435\u043d\u043d\u044b\u0445 \u0443\u0441\u043b\u043e\u0436\u043d\u044f\u0435\u0442\u0441\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0443 \u043d\u0443\u0436\u043d\u043e \u0432\u0440\u0435\u043c\u044f, \u0447\u0442\u043e\u0431\u044b \u043d\u0430\u0439\u0442\u0438 \u0438 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u0442\u044c \u0430\u0434\u0440\u0435\u0441. \u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0435 \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u043f\u043e\u0437\u0432\u043e\u043b\u044f\u044e\u0442 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0441\u043f\u043e\u043a\u043e\u0439\u043d\u043e \u0438\u0433\u0440\u0430\u0442\u044c \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0430\u0445 \u043d\u0435 \u0432 \u0443\u0449\u0435\u0440\u0431 \u0441\u0432\u043e\u0438\u043c \u0438\u043d\u0442\u0435\u0440\u0435\u0441\u0430\u043c.\r\n\r\n\u0415\u0441\u0442\u044c \u0435\u0449\u0435 \u0434\u0432\u0430 \u0432\u043e\u043f\u0440\u043e\u0441\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0447\u0430\u0441\u0442\u043e \u0437\u0430\u0434\u0430\u044e\u0442 \u0431\u0435\u0442\u0442\u0435\u0440\u044b-\u043d\u043e\u0432\u0438\u0447\u043a\u0438. \u0414\u0430\u0435\u043c \u043d\u0430 \u043d\u0438\u0445 \u043e\u0442\u0432\u0435\u0442\u044b:\r\n\r\n\u041a\u0430\u0436\u0434\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0442\u043b\u0438\u0447\u0430\u0435\u0442\u0441\u044f \u043e\u0434\u043d\u043e \u043e\u0442 \u0434\u0440\u0443\u0433\u043e\u0433\u043e?\r\n\u041d\u0435\u0442, \u0432\u0441\u0435 \u0441\u0430\u0439\u0442\u044b \u0430\u0431\u0441\u043e\u043b\u044e\u0442\u043d\u043e \u0438\u0434\u0435\u043d\u0442\u0438\u0447\u043d\u044b. \u0411\u0430\u0437\u044b \u0434\u0430\u043d\u043d\u044b\u0445 \u043f\u043e\u043b\u043d\u043e\u0441\u0442\u044c\u044e \u043a\u043e\u043f\u0438\u0440\u0443\u044e\u0442\u0441\u044f \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f, \u0438 \u043f\u043e\u0441\u0435\u0442\u0438\u0442\u0435\u043b\u044c \u0432\u0441\u0435\u0433\u0434\u0430 \u0432\u0438\u0434\u0438\u0442 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0443\u044e \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044e. \u0421\u0440\u0430\u0432\u043d\u0438\u0432\u0430\u0442\u044c \u0441\u0430\u0439\u0442\u044b \u043d\u0430 \u0440\u0430\u0437\u043d\u044b\u0445 \u0430\u0434\u0440\u0435\u0441\u0430\u0445 \u0431\u0435\u0441\u0441\u043c\u044b\u0441\u043b\u0435\u043d\u043d\u043e, \u043f\u043e\u0442\u043e\u043c\u0443 \u0447\u0442\u043e \u043d\u0438\u043a\u0430\u043a\u043e\u0439 \u0440\u0430\u0437\u043d\u0438\u0446\u044b \u043d\u0435\u0442.\r\n\u041c\u043d\u0435 \u043f\u0440\u0438\u0434\u0435\u0442\u0441\u044f \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u0442\u044c\u0441\u044f \u0437\u0430\u043d\u043e\u0432\u043e, \u0435\u0441\u043b\u0438 \u043e\u0447\u0435\u0440\u0435\u0434\u043d\u0443\u044e \u0441\u0441\u044b\u043b\u043a\u0443 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u044e\u0442?\r\n\u0412\u0441\u044f \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044f \u0438\u0437 \u043b\u0438\u0447\u043d\u043e\u0433\u043e \u043a\u0430\u0431\u0438\u043d\u0435\u0442\u0430 \u043d\u0430 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e. \u0420\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044f \u043f\u0440\u043e\u0445\u043e\u0434\u0438\u0442 \u0432\u0441\u0435\u0433\u043e \u043e\u0434\u0438\u043d \u0440\u0430\u0437, \u0438 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044e \u043d\u0435 \u043d\u0443\u0436\u043d\u043e \u0431\u0435\u0441\u043f\u043e\u043a\u043e\u0438\u0442\u044c\u0441\u044f \u043e \u0441\u043e\u0445\u0440\u0430\u043d\u043d\u043e\u0441\u0442\u0438 \u0441\u0432\u043e\u0435\u0433\u043e \u0430\u043a\u043a\u0430\u0443\u043d\u0442\u0430.\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u043f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442 \u0432 \u043e\u0434\u0438\u043d \u043a\u043b\u0438\u043a\r\n\r\n\u041f\u0440\u043e\u0439\u0434\u0435\u0442 \u043a\u0430\u043a\u043e\u0435-\u0442\u043e \u0432\u0440\u0435\u043c\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440 \u0432 \u043b\u044e\u0431\u043e\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u0434\u043e\u0431\u0435\u0440\u0435\u0442\u0441\u044f \u0434\u043e \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0438 \u0431\u0435\u0437\u0436\u0430\u043b\u043e\u0441\u0442\u043d\u043e \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442 \u0435\u0433\u043e. \u041f\u043e\u0441\u043b\u0435 \u044d\u0442\u043e\u0433\u043e \u043f\u0435\u0440\u0435\u0434 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u043c \u043f\u043e\u044f\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u0437\u0430\u0434\u0430\u0447\u0430 - \u043d\u0430\u0439\u0442\u0438 \u043d\u043e\u0432\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f. \u041f\u043e \u0440\u0430\u0437\u043d\u044b\u043c \u043f\u0440\u0438\u0447\u0438\u043d\u0430\u043c, \u043f\u043e\u0440\u043e\u0439, \u043d\u0430 \u043f\u043e\u0438\u0441\u043a\u0438 \u043f\u0440\u0438\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u043d\u0435 \u043e\u0434\u0438\u043d \u0447\u0430\u0441: \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0432\u044b\u0434\u0430\u0435\u0442 \u043f\u043e\u0438\u0441\u043a, \u0443\u0436\u0435 \u043d\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b, \u0438\u043b\u0438 \u0432\u0435\u0434\u0443\u0442 \u043d\u0430 \u043a\u0430\u043a\u043e\u0439-\u0442\u043e \u043d\u0435\u043f\u043e\u043d\u044f\u0442\u043d\u044b\u0439 \u0441\u0430\u0439\u0442, \u0441\u043e\u0432\u0441\u0435\u043c \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u043e\u0439 1\u0412\u0438\u043d. \u041d\u0443\u0436\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0443\u0441\u043a\u043e\u043b\u044c\u0437\u0430\u0435\u0442.\r\n\r\n\u0420\u0435\u0448\u0435\u043d\u0438\u0435 \u044d\u0442\u043e\u0439 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b \u043d\u0430\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0437\u0434\u0435\u0441\u044c. \u041d\u0430\u0448 \u0441\u0430\u0439\u0442 \u2013 \u0441\u043f\u0430\u0441\u0430\u0442\u0435\u043b\u044c\u043d\u044b\u0439 \u043a\u0440\u0443\u0433 \u0434\u043b\u044f \u0442\u0435\u0445, \u043a\u0442\u043e \u0443\u0432\u044f\u0437 \u0432 \u043d\u0435\u0434\u0440\u0430\u0445 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0430 \u0432 \u043f\u043e\u0438\u0441\u043a\u0430\u0445 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0445 \u0437\u0435\u0440\u043a\u0430\u043b \u0411\u041a. \u041a\u0430\u043a\u0438\u043c \u0431\u044b \u0431\u044b\u0441\u0442\u0440\u044b\u043c \u043d\u0438 \u0431\u044b\u043b \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440, \u043d\u0430 \u044d\u0442\u043e\u0439 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0435 \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0431\u043d\u043e\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u043c\u0433\u043d\u043e\u0432\u0435\u043d\u043d\u043e, \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044c \u0434\u0430\u0436\u0435 \u043d\u0435 \u043f\u043e\u0439\u043c\u0435\u0442, \u0447\u0442\u043e \u043f\u0440\u0435\u0434\u044b\u0434\u0443\u0449\u0438\u0439 \u0430\u0434\u0440\u0435\u0441 \u0431\u044b\u043b \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d.\r\n\r\n\u0413\u043b\u0430\u0432\u043d\u043e\u0435 \u043f\u0440\u0435\u0438\u043c\u0443\u0449\u0435\u0441\u0442\u0432\u043e \u043d\u0430\u0448\u0435\u0433\u043e \u0441\u0430\u0439\u0442\u0430 \u2013 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e\u0435 \u043e\u0442\u0441\u043b\u0435\u0436\u0438\u0432\u0430\u043d\u0438\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u0438. \u0414\u043e\u0431\u0430\u0432\u0438\u0432 \u044d\u0442\u0443 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0443 \u0432 \u0437\u0430\u043a\u043b\u0430\u0434\u043a\u0438, \u0432\u044b \u0431\u0443\u0434\u0435\u0442\u0435 \u0432 \u043a\u0443\u0440\u0441\u0435, \u0433\u0434\u0435 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0441\u0435\u0439\u0447\u0430\u0441, \u0438 \u043f\u043e\u0432\u043e\u0434 \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0435 \u0432\u0440\u0435\u043c\u044f \u043d\u0430 \u0448\u0442\u0443\u0440\u043c \u043f\u043e\u0438\u0441\u043a\u043e\u0432\u044b\u0445 \u0441\u0438\u0441\u0442\u0435\u043c \u043e\u0442\u043f\u0430\u0434\u0435\u0442 \u043d\u0430\u0432\u0441\u0435\u0433\u0434\u0430.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n\u041d\u0430\u0436\u043c\u0438\u0442\u0435 \u043a\u043d\u043e\u043f\u043a\u0443 \u0441 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u043c \u0437\u0435\u0440\u043a\u0430\u043b\u043e\u043c, \u0438 \u0432\u044b \u043f\u0435\u0440\u0435\u043d\u0435\u0441\u0435\u0442\u0435\u0441\u044c \u0432 \u0432\u043e\u043b\u0448\u0435\u0431\u043d\u044b\u0439 \u043c\u0438\u0440 1\u0412\u0438\u043d, \u0433\u0434\u0435 \u0432\u0430\u0441 \u0436\u0434\u0443\u0442 \u043a\u0440\u0443\u043f\u043d\u044b\u0435 \u043a\u043e\u044d\u0444\u0444\u0438\u0446\u0438\u0435\u043d\u0442\u044b, \u0431\u044b\u0441\u0442\u0440\u044b\u0435 \u0432\u044b\u043f\u043b\u0430\u0442\u044b \u0438 \u0448\u0438\u0440\u043e\u043a\u0430\u044f \u043b\u0438\u043d\u0438\u044f \u0441\u0442\u0430\u0432\u043e\u043a.",
+    "itemReviewed": {
+        "@type": "Event",
+        "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+        "startDate": "2019-01-01",
+        "endDate": "2019-12-31",
+        "description": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0435\u0448\u0438\u0442 \u0432\u0430\u0448\u0438 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b, \u0432\u0435\u0434\u044c \u0435\u0441\u043b\u0438 \u0431\u0435\u0442\u0442\u0435\u0440 \u0438\u0433\u0440\u0430\u0435\u0442 \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0438 c \u043d\u0435\u043b\u0438\u0446\u0435\u043d\u0437\u0438\u043e\u043d\u043d\u044b\u043c\u0438 \u0432 \u0420\u043e\u0441\u0441\u0438\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u043c\u0438 \u043a\u043e\u043d\u0442\u043e\u0440\u0430\u043c\u0438, \u043e\u0431\u044f\u0437\u0430\u0442\u0435\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u0442\u0430\u043d\u0435\u0442 \u043c\u043e\u043c\u0435\u043d\u0442, \u043a\u043e\u0433\u0434\u0430 \u0438\u0433\u0440\u043e\u043a \u0443\u0432\u0438\u0434\u0438\u0442 \u0441\u0442\u0440\u0430\u0448\u043d\u0443\u044e \u043d\u0430\u0434\u043f\u0438\u0441\u044c - \u00ab\u0421\u0430\u0439\u0442 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d\u00bb. \u0423\u0441\u043f\u043e\u043a\u0430\u0438\u0432\u0430\u0435\u043c: \u0432 \u0442\u0430\u043a\u043e\u0439 \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u0438 \u043f\u0430\u043d\u0438\u043a\u0430 \u2013 \u043b\u0438\u0448\u043d\u0435\u0435, \u0432\u0435\u0434\u044c \u0434\u0430\u043d\u043d\u044b\u0435 \u043d\u0435 \u0443\u0434\u0430\u043b\u0435\u043d\u044b, \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u043d\u0435 \u0430\u043d\u043d\u0443\u043b\u0438\u0440\u043e\u0432\u0430\u043d, \u0438\u0433\u0440\u0430\u0442\u044c \u0438 \u0432\u044b\u0432\u0435\u0441\u0442\u0438 \u0434\u0435\u043d\u044c\u0433\u0438 \u043f\u043e-\u043f\u0440\u0435\u0436\u043d\u0435\u043c\u0443 \u043c\u043e\u0436\u043d\u043e. \u0417\u0434\u0435\u0441\u044c \u043c\u044b \u0440\u0430\u0441\u0441\u043a\u0430\u0436\u0435\u043c \u043e \u0441\u043f\u043e\u0441\u043e\u0431\u0435 \u043e\u0431\u0445\u043e\u0434\u0430 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0438 \u0438 \u043f\u043e\u0434\u0435\u043b\u0438\u043c\u0441\u044f \u0441\u0441\u044b\u043b\u043a\u043e\u0439 \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0438\u0437\u0431\u0430\u0432\u0438\u0442 \u0432\u0430\u0441 \u043e\u0442 \u043f\u0440\u043e\u0431\u043b\u0435\u043c \u0441 \u0434\u043e\u0441\u0442\u0443\u043f\u043e\u043c \u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0443.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e - \u043c\u043e\u043b\u043e\u0434\u043e\u0439 \u0438 \u043f\u0435\u0440\u0441\u043f\u0435\u043a\u0442\u0438\u0432\u043d\u044b\u0439 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\r\n\r\n\u0411\u043e\u043b\u044c\u0448\u0430\u044f \u043f\u043b\u043e\u0442\u043d\u043e\u0441\u0442\u044c \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0446\u0438\u0438 \u043d\u0435 \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442, \u0447\u0442\u043e \u043d\u043e\u0432\u044b\u0445 \u0438\u0433\u0440\u043e\u043a\u043e\u0432 \u043d\u0430 \u0440\u044b\u043d\u043a\u0435 \u043d\u0435 \u043f\u043e\u044f\u0432\u0438\u0442\u0441\u044f. \u041d\u0430\u043e\u0431\u043e\u0440\u043e\u0442, \u0442\u0430\u043a\u0430\u044f \u0441\u0438\u0442\u0443\u0430\u0446\u0438\u044f \u0441\u0442\u0438\u043c\u0443\u043b\u0438\u0440\u0443\u0435\u0442 \u0443\u043b\u0443\u0447\u0448\u0430\u0442\u044c\u0441\u044f \u0432\u0441\u0435\u0445 \u043e\u0431\u0438\u0442\u0430\u0442\u0435\u043b\u0435\u0439 \u043d\u0438\u0448\u0438. \u0418\u0433\u043e\u0440\u043d\u044b\u0439 \u0431\u0438\u0437\u043d\u0435\u0441 \u2013 \u043d\u0435 \u0438\u0441\u043a\u043b\u044e\u0447\u0435\u043d\u0438\u0435. \u041d\u0430\u043b\u0438\u0447\u0438\u0435 \u0441\u0438\u043b\u044c\u043d\u043e\u0433\u043e \u0438 \u043a\u0440\u0435\u043f\u043a\u043e\u0433\u043e \u0440\u044f\u0434\u0430 \u043a\u043e\u043d\u043a\u0443\u0440\u0435\u043d\u0442\u043e\u0432 \u043d\u0435 \u043f\u043e\u043c\u0435\u0448\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 1win \u0432 2018 \u0433\u043e\u0434\u0443 \u0433\u0440\u043e\u043c\u043a\u043e \u0432\u043e\u0440\u0432\u0430\u0442\u044c\u0441\u044f \u043d\u0430 \u043f\u0440\u043e\u0441\u0442\u043e\u0440\u044b \u0441\u043f\u043e\u0440\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a \u0432 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0435.\r\n\r\n\u0418\u0441\u043f\u043e\u043b\u044c\u0437\u0443\u0439\u0442\u0435 1win \u043f\u0440\u043e\u043c\u043e\u043a\u043e\u0434 | 1wintor | \u0434\u043b\u044f \u0431\u043e\u043d\u0443\u0441\u0430 \u0434\u043e 50 000 \u0440\u0443\u0431\u043b\u0435\u0439 \u043d\u0430 \u043f\u0435\u0440\u0432\u044b\u0439 \u0434\u0435\u043f\u043e\u0437\u0438\u0442!\r\n\r\n\u0411\u041a 1\u0412\u0438\u043d \u0431\u044b\u0441\u0442\u0440\u043e \u0441\u043e\u0431\u0440\u0430\u043b\u0430 \u0432\u043e\u043a\u0440\u0443\u0433 \u0441\u0435\u0431\u044f \u0438\u0433\u0440\u043e\u043a\u043e\u0432, \u0436\u0430\u0436\u0434\u0443\u0449\u0438\u0445 \u0438\u0441\u043f\u044b\u0442\u0430\u0442\u044c \u043d\u043e\u0432\u043e\u044f\u0432\u043b\u0435\u043d\u043d\u043e\u0433\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430. \u041a\u043e\u043c\u043f\u0430\u043d\u0438\u044f \u043d\u0435 \u043f\u043e\u0434\u0432\u0435\u043b\u0430 \u0434\u043e\u0432\u0435\u0440\u0438\u0432\u0448\u0438\u0445\u0441\u044f \u0438\u043c \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u0438 \u043f\u0440\u0435\u0434\u043b\u043e\u0436\u0438\u043b\u0430 \u0448\u0438\u0440\u043e\u043a\u0443\u044e \u043b\u0438\u043d\u0438\u044e \u0441\u0442\u0430\u0432\u043e\u043a \u043d\u0430 \u043f\u043e\u043f\u0443\u043b\u044f\u0440\u043d\u0435\u0439\u0448\u0438\u0435 \u0432\u0438\u0434\u044b \u0441\u043f\u043e\u0440\u0442\u0430, \u0432\u043a\u043b\u044e\u0447\u0430\u044f \u043a\u0438\u0431\u0435\u0440\u0441\u043f\u043e\u0440\u0442. \u041f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0440\u0430\u0441\u0442\u0443\u0449\u0430\u044f \u0430\u0443\u0434\u0438\u0442\u043e\u0440\u0438\u044f \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430 \u0438 \u043f\u043e\u043b\u043e\u0436\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0435 \u043e\u0442\u0437\u044b\u0432\u044b \u043a\u043b\u0438\u0435\u043d\u0442\u043e\u0432 \u2013 \u0434\u043e\u043a\u0430\u0437\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e, \u0447\u0442\u043e \u0432\u044b\u0431\u0440\u0430\u043d\u043d\u0430\u044f \u0441\u0442\u0440\u0430\u0442\u0435\u0433\u0438\u044f \u0440\u0430\u0437\u0432\u0438\u0442\u0438\u044f \u043a\u043e\u043c\u043f\u0430\u043d\u0438\u0438 \u0432\u0435\u0440\u043d\u0430\u044f.\r\n\r\n\u041e\u0434\u043d\u0430\u043a\u043e \u043d\u0435 \u0432\u0441\u0435 \u0442\u0430\u043a \u043f\u0440\u043e\u0441\u0442\u043e, \u043a\u0430\u043a \u043a\u0430\u0436\u0435\u0442\u0441\u044f: \u0437\u0430\u043a\u043e\u043d\u043e\u0434\u0430\u0442\u0435\u043b\u044c\u0441\u0442\u0432\u043e \u0420\u043e\u0441\u0441\u0438\u0439\u0441\u043a\u043e\u0439 \u0424\u0435\u0434\u0435\u0440\u0430\u0446\u0438\u0438 \u0432\u0441\u044f\u0447\u0435\u0441\u043a\u0438 \u043f\u0440\u0435\u043f\u044f\u0442\u0441\u0442\u0432\u0443\u0435\u0442 \u0434\u0435\u044f\u0442\u0435\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0411\u041a, \u0441\u0442\u0430\u0440\u0430\u044f\u0441\u044c \u043e\u0442\u0445\u0432\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0439 \u043a\u0443\u0441\u043e\u043a \u0442\u043e\u0440\u0442\u0430 \u0438 \u0441\u043d\u0438\u0437\u0438\u0442\u044c \u0434\u043e\u0445\u043e\u0434\u044b \u043a\u0430\u043a \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440, \u0442\u0430\u043a \u0438 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u0432. \u041a \u0441\u0447\u0430\u0441\u0442\u044c\u044e, \u043a\u0430\u043a\u043e\u0439 \u0431\u044b \u0432\u044b\u0441\u043e\u043a\u043e\u0439 \u043d\u0435 \u0431\u044b\u043b\u0430 \u0441\u043a\u043e\u0440\u043e\u0441\u0442\u044c \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u0432 \u0440\u0430\u0437\u0434\u0430\u0447\u0435 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043e\u043a \u043d\u0435\u0443\u0433\u043e\u0434\u043d\u044b\u043c \u0441\u0430\u0439\u0442\u0430\u043c, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u043d\u0430\u0439\u0434\u0435\u0442\u0441\u044f \u0432\u0441\u0435\u0433\u0434\u0430. \u0412 \u043d\u0430\u0448\u0435\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u2013 \u044d\u0442\u043e 1win \u0441\u0430\u0439\u0442 \u0437\u0435\u0440\u043a\u0430\u043b\u043e, \u0433\u0434\u0435 \u043c\u043e\u0436\u043d\u043e \u043f\u043e\u043b\u043d\u043e\u0446\u0435\u043d\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0436\u0434\u0430\u0442\u044c\u0441\u044f \u0443\u0441\u043b\u0443\u0433\u0430\u043c\u0438 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0430, \u043d\u0435 \u0434\u0443\u043c\u0430\u044f \u043e \u0432\u043d\u0435\u0437\u0430\u043f\u043d\u043e\u0439 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0435.\r\n\r\n\u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u044b 1win\r\n\u0427\u0442\u043e \u0442\u0430\u043a\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0438 \u0437\u0430\u0447\u0435\u043c \u043e\u043d\u043e?\r\n\r\n\u0427\u0442\u043e\u0431\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u0435 \u043e\u0444\u0438\u0446\u0438\u0430\u043b\u044c\u043d\u043e \u0440\u0430\u0431\u043e\u0442\u0430\u0442\u044c \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u043e\u0441\u0441\u0438\u0438, \u0435\u0439 \u043d\u0443\u0436\u043d\u043e \u043f\u0440\u043e\u0439\u0442\u0438 \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044e \u0432 \u0441\u043f\u0435\u0446\u0438\u0430\u043b\u044c\u043d\u043e\u0439 \u043e\u0440\u0433\u0430\u043d\u0438\u0437\u0430\u0446\u0438\u0438 \u2013 \u0426\u0423\u041f\u0418\u0421 (\u0426\u0435\u043d\u0442\u0440\u0435 \u0443\u0447\u0435\u0442\u0430 \u043f\u0435\u0440\u0435\u0432\u043e\u0434\u043e\u0432 \u0438\u043d\u0442\u0435\u0440\u0430\u043a\u0442\u0438\u0432\u043d\u044b\u0445 \u0441\u0442\u0430\u0432\u043e\u043a). \u0410 \u044d\u0442\u043e \u043e\u0437\u043d\u0430\u0447\u0430\u0435\u0442 \u0443\u043f\u043b\u0430\u0442\u0443 \u0434\u043e\u043f\u043e\u043b\u043d\u0438\u0442\u0435\u043b\u044c\u043d\u044b\u0445 \u043d\u0430\u043b\u043e\u0433\u043e\u0432, \u0441\u043d\u0438\u0436\u0435\u043d\u0438\u0435 \u0441\u0443\u043c\u043c\u044b \u0432\u044b\u0438\u0433\u0440\u044b\u0448\u0435\u0439, \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u044b\u0439 \u043a\u043e\u043d\u0442\u0440\u043e\u043b\u044c. \u0412 \u0441\u043b\u0443\u0447\u0430\u0435, \u0435\u0441\u043b\u0438 \u0441\u043e\u0442\u0440\u0443\u0434\u043d\u0438\u043a\u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0430 \u043d\u0430\u0442\u044b\u043a\u0430\u044e\u0442\u0441\u044f \u043d\u0430 \u043d\u0435\u0437\u0430\u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u043d\u043d\u044b\u0439 \u0441\u0430\u0439\u0442 \u0411\u041a, \u0434\u043e\u0441\u0442\u0443\u043f \u043a \u043d\u0435\u043c\u0443 \u043d\u0430 \u0442\u0435\u0440\u0440\u0438\u0442\u043e\u0440\u0438\u0438 \u0420\u0424 \u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442\u0441\u044f. \u041f\u0440\u043e\u0433\u0440\u0430\u043c\u043c\u0438\u0441\u0442\u044b \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u0438\u0445 \u043a\u043e\u043d\u0442\u043e\u0440 \u0438\u0441\u043a\u0430\u043b\u0438 \u043b\u0430\u0437\u0435\u0439\u043a\u0443, \u043a\u0430\u043a \u043e\u0431\u043e\u0439\u0442\u0438 \u044d\u0442\u0443 \u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u043a\u0443 \u0438 \u0434\u0430\u0442\u044c \u0441\u0432\u043e\u0438\u043c \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0432\u043e\u0437\u043c\u043e\u0436\u043d\u043e\u0441\u0442\u044c \u043c\u0430\u043a\u0441\u0438\u043c\u0430\u043b\u044c\u043d\u043e \u043d\u0430\u0441\u043b\u0430\u0434\u0438\u0442\u044c\u0441\u044f \u0438\u0433\u0440\u043e\u0439 \u0438 \u043f\u043e\u043b\u0443\u0447\u0438\u0442\u044c \u0437\u0430\u0441\u043b\u0443\u0436\u0435\u043d\u043d\u044b\u0439 \u0432\u044b\u0438\u0433\u0440\u044b\u0448 \u0432 \u043f\u043e\u043b\u043d\u043e\u043c \u043e\u0431\u044a\u0435\u043c\u0435. \u0412 \u0438\u0442\u043e\u0433\u0435, \u0440\u0435\u0448\u0435\u043d\u0438\u0435 \u0431\u044b\u043b\u043e \u043d\u0430\u0439\u0434\u0435\u043d\u043e \u2013 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0441\u0430\u0439\u0442\u043e\u0432.\r\n\r\n1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u044d\u0442\u043e \u043f\u043e\u043b\u043d\u0430\u044f \u043a\u043e\u043f\u0438\u044f \u0441\u0430\u0439\u0442\u0430 \u0411\u041a, \u043a\u043e\u0442\u043e\u0440\u0430\u044f \u0440\u0430\u0437\u043c\u0435\u0449\u0430\u0435\u0442\u0441\u044f \u043d\u0430 \u0432\u0438\u0434\u043e\u0438\u0437\u043c\u0435\u043d\u0435\u043d\u043d\u043e\u043c \u0440\u0435\u0437\u0435\u0440\u0432\u043d\u043e\u043c URL-\u0435. \u041e\u0431\u044b\u0447\u043d\u043e \u044d\u0442\u043e \u0431\u0435\u0441\u0441\u0432\u044f\u0437\u043d\u044b\u0439 \u043d\u0430\u0431\u043e\u0440 \u0441\u0438\u043c\u0432\u043e\u043b\u043e\u0432, \u043d\u0438\u043a\u0430\u043a \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0438\u043c\u0435\u043d\u0435\u043c \u043e\u0441\u043d\u043e\u0432\u043d\u043e\u0433\u043e \u0434\u043e\u043c\u0435\u043d\u0430 \u0411\u041a. \u0422\u0430\u043a\u0438\u043c \u043e\u0431\u0440\u0430\u0437\u043e\u043c, \u0437\u0430\u0434\u0430\u0447\u0430 \u0434\u043e\u0431\u0430\u0432\u043b\u0435\u043d\u0438\u044f \u0430\u0434\u0440\u0435\u0441\u0430 \u0432 \u0441\u043f\u0438\u0441\u043e\u043a \u0437\u0430\u043f\u0440\u0435\u0449\u0435\u043d\u043d\u044b\u0445 \u0443\u0441\u043b\u043e\u0436\u043d\u044f\u0435\u0442\u0441\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440\u0443 \u043d\u0443\u0436\u043d\u043e \u0432\u0440\u0435\u043c\u044f, \u0447\u0442\u043e\u0431\u044b \u043d\u0430\u0439\u0442\u0438 \u0438 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u0442\u044c \u0430\u0434\u0440\u0435\u0441. \u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0435 \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u043f\u043e\u0437\u0432\u043e\u043b\u044f\u044e\u0442 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044f\u043c \u0441\u043f\u043e\u043a\u043e\u0439\u043d\u043e \u0438\u0433\u0440\u0430\u0442\u044c \u043d\u0430 \u0441\u0442\u0430\u0432\u043a\u0430\u0445 \u043d\u0435 \u0432 \u0443\u0449\u0435\u0440\u0431 \u0441\u0432\u043e\u0438\u043c \u0438\u043d\u0442\u0435\u0440\u0435\u0441\u0430\u043c.\r\n\r\n\u0415\u0441\u0442\u044c \u0435\u0449\u0435 \u0434\u0432\u0430 \u0432\u043e\u043f\u0440\u043e\u0441\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0447\u0430\u0441\u0442\u043e \u0437\u0430\u0434\u0430\u044e\u0442 \u0431\u0435\u0442\u0442\u0435\u0440\u044b-\u043d\u043e\u0432\u0438\u0447\u043a\u0438. \u0414\u0430\u0435\u043c \u043d\u0430 \u043d\u0438\u0445 \u043e\u0442\u0432\u0435\u0442\u044b:\r\n\r\n\u041a\u0430\u0436\u0434\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0442\u043b\u0438\u0447\u0430\u0435\u0442\u0441\u044f \u043e\u0434\u043d\u043e \u043e\u0442 \u0434\u0440\u0443\u0433\u043e\u0433\u043e?\r\n\u041d\u0435\u0442, \u0432\u0441\u0435 \u0441\u0430\u0439\u0442\u044b \u0430\u0431\u0441\u043e\u043b\u044e\u0442\u043d\u043e \u0438\u0434\u0435\u043d\u0442\u0438\u0447\u043d\u044b. \u0411\u0430\u0437\u044b \u0434\u0430\u043d\u043d\u044b\u0445 \u043f\u043e\u043b\u043d\u043e\u0441\u0442\u044c\u044e \u043a\u043e\u043f\u0438\u0440\u0443\u044e\u0442\u0441\u044f \u043d\u0430 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f, \u0438 \u043f\u043e\u0441\u0435\u0442\u0438\u0442\u0435\u043b\u044c \u0432\u0441\u0435\u0433\u0434\u0430 \u0432\u0438\u0434\u0438\u0442 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0443\u044e \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044e. \u0421\u0440\u0430\u0432\u043d\u0438\u0432\u0430\u0442\u044c \u0441\u0430\u0439\u0442\u044b \u043d\u0430 \u0440\u0430\u0437\u043d\u044b\u0445 \u0430\u0434\u0440\u0435\u0441\u0430\u0445 \u0431\u0435\u0441\u0441\u043c\u044b\u0441\u043b\u0435\u043d\u043d\u043e, \u043f\u043e\u0442\u043e\u043c\u0443 \u0447\u0442\u043e \u043d\u0438\u043a\u0430\u043a\u043e\u0439 \u0440\u0430\u0437\u043d\u0438\u0446\u044b \u043d\u0435\u0442.\r\n\u041c\u043d\u0435 \u043f\u0440\u0438\u0434\u0435\u0442\u0441\u044f \u0440\u0435\u0433\u0438\u0441\u0442\u0440\u0438\u0440\u043e\u0432\u0430\u0442\u044c\u0441\u044f \u0437\u0430\u043d\u043e\u0432\u043e, \u0435\u0441\u043b\u0438 \u043e\u0447\u0435\u0440\u0435\u0434\u043d\u0443\u044e \u0441\u0441\u044b\u043b\u043a\u0443 \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u044e\u0442?\r\n\u0412\u0441\u044f \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u044f \u0438\u0437 \u043b\u0438\u0447\u043d\u043e\u0433\u043e \u043a\u0430\u0431\u0438\u043d\u0435\u0442\u0430 \u043d\u0430 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e. \u0420\u0435\u0433\u0438\u0441\u0442\u0440\u0430\u0446\u0438\u044f \u043f\u0440\u043e\u0445\u043e\u0434\u0438\u0442 \u0432\u0441\u0435\u0433\u043e \u043e\u0434\u0438\u043d \u0440\u0430\u0437, \u0438 \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044e \u043d\u0435 \u043d\u0443\u0436\u043d\u043e \u0431\u0435\u0441\u043f\u043e\u043a\u043e\u0438\u0442\u044c\u0441\u044f \u043e \u0441\u043e\u0445\u0440\u0430\u043d\u043d\u043e\u0441\u0442\u0438 \u0441\u0432\u043e\u0435\u0433\u043e \u0430\u043a\u043a\u0430\u0443\u043d\u0442\u0430.\r\n1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u2013 \u043f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442 \u0432 \u043e\u0434\u0438\u043d \u043a\u043b\u0438\u043a\r\n\r\n\u041f\u0440\u043e\u0439\u0434\u0435\u0442 \u043a\u0430\u043a\u043e\u0435-\u0442\u043e \u0432\u0440\u0435\u043c\u044f, \u0438 \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440 \u0432 \u043b\u044e\u0431\u043e\u043c \u0441\u043b\u0443\u0447\u0430\u0435 \u0434\u043e\u0431\u0435\u0440\u0435\u0442\u0441\u044f \u0434\u043e \u0437\u0435\u0440\u043a\u0430\u043b\u0430 \u0438 \u0431\u0435\u0437\u0436\u0430\u043b\u043e\u0441\u0442\u043d\u043e \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u0443\u0435\u0442 \u0435\u0433\u043e. \u041f\u043e\u0441\u043b\u0435 \u044d\u0442\u043e\u0433\u043e \u043f\u0435\u0440\u0435\u0434 \u0431\u0435\u0442\u0442\u0435\u0440\u043e\u043c \u043f\u043e\u044f\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u0437\u0430\u0434\u0430\u0447\u0430 - \u043d\u0430\u0439\u0442\u0438 \u043d\u043e\u0432\u043e\u0435 1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043d\u0430 \u0441\u0435\u0433\u043e\u0434\u043d\u044f. \u041f\u043e \u0440\u0430\u0437\u043d\u044b\u043c \u043f\u0440\u0438\u0447\u0438\u043d\u0430\u043c, \u043f\u043e\u0440\u043e\u0439, \u043d\u0430 \u043f\u043e\u0438\u0441\u043a\u0438 \u043f\u0440\u0438\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u043d\u0435 \u043e\u0434\u0438\u043d \u0447\u0430\u0441: \u0441\u0441\u044b\u043b\u043a\u0438 \u043d\u0430 \u0437\u0435\u0440\u043a\u0430\u043b\u0430, \u043a\u043e\u0442\u043e\u0440\u044b\u0435 \u0432\u044b\u0434\u0430\u0435\u0442 \u043f\u043e\u0438\u0441\u043a, \u0443\u0436\u0435 \u043d\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b, \u0438\u043b\u0438 \u0432\u0435\u0434\u0443\u0442 \u043d\u0430 \u043a\u0430\u043a\u043e\u0439-\u0442\u043e \u043d\u0435\u043f\u043e\u043d\u044f\u0442\u043d\u044b\u0439 \u0441\u0430\u0439\u0442, \u0441\u043e\u0432\u0441\u0435\u043c \u043d\u0435 \u0441\u0432\u044f\u0437\u0430\u043d\u043d\u044b\u0439 \u0441 \u0431\u0443\u043a\u043c\u0435\u043a\u0435\u0440\u0441\u043a\u043e\u0439 \u043a\u043e\u043d\u0442\u043e\u0440\u043e\u0439 1\u0412\u0438\u043d. \u041d\u0443\u0436\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e \u0443\u0441\u043a\u043e\u043b\u044c\u0437\u0430\u0435\u0442.\r\n\r\n\u0420\u0435\u0448\u0435\u043d\u0438\u0435 \u044d\u0442\u043e\u0439 \u043f\u0440\u043e\u0431\u043b\u0435\u043c\u044b \u043d\u0430\u0445\u043e\u0434\u0438\u0442\u0441\u044f \u0437\u0434\u0435\u0441\u044c. \u041d\u0430\u0448 \u0441\u0430\u0439\u0442 \u2013 \u0441\u043f\u0430\u0441\u0430\u0442\u0435\u043b\u044c\u043d\u044b\u0439 \u043a\u0440\u0443\u0433 \u0434\u043b\u044f \u0442\u0435\u0445, \u043a\u0442\u043e \u0443\u0432\u044f\u0437 \u0432 \u043d\u0435\u0434\u0440\u0430\u0445 \u0438\u043d\u0442\u0435\u0440\u043d\u0435\u0442\u0430 \u0432 \u043f\u043e\u0438\u0441\u043a\u0430\u0445 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u0445 \u0437\u0435\u0440\u043a\u0430\u043b \u0411\u041a. \u041a\u0430\u043a\u0438\u043c \u0431\u044b \u0431\u044b\u0441\u0442\u0440\u044b\u043c \u043d\u0438 \u0431\u044b\u043b \u0420\u043e\u0441\u043a\u043e\u043c\u043d\u0430\u0434\u0437\u043e\u0440, \u043d\u0430 \u044d\u0442\u043e\u0439 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0435 \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 1\u0432\u0438\u043d \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u043e\u0431\u043d\u043e\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u043c\u0433\u043d\u043e\u0432\u0435\u043d\u043d\u043e, \u043f\u043e\u043b\u044c\u0437\u043e\u0432\u0430\u0442\u0435\u043b\u044c \u0434\u0430\u0436\u0435 \u043d\u0435 \u043f\u043e\u0439\u043c\u0435\u0442, \u0447\u0442\u043e \u043f\u0440\u0435\u0434\u044b\u0434\u0443\u0449\u0438\u0439 \u0430\u0434\u0440\u0435\u0441 \u0431\u044b\u043b \u0437\u0430\u0431\u043b\u043e\u043a\u0438\u0440\u043e\u0432\u0430\u043d.\r\n\r\n\u0413\u043b\u0430\u0432\u043d\u043e\u0435 \u043f\u0440\u0435\u0438\u043c\u0443\u0449\u0435\u0441\u0442\u0432\u043e \u043d\u0430\u0448\u0435\u0433\u043e \u0441\u0430\u0439\u0442\u0430 \u2013 \u043f\u043e\u0441\u0442\u043e\u044f\u043d\u043d\u043e\u0435 \u043e\u0442\u0441\u043b\u0435\u0436\u0438\u0432\u0430\u043d\u0438\u0435 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u043e\u0441\u0442\u0438 \u0438\u043d\u0444\u043e\u0440\u043c\u0430\u0446\u0438\u0438. \u0414\u043e\u0431\u0430\u0432\u0438\u0432 \u044d\u0442\u0443 \u0441\u0442\u0440\u0430\u043d\u0438\u0446\u0443 \u0432 \u0437\u0430\u043a\u043b\u0430\u0434\u043a\u0438, \u0432\u044b \u0431\u0443\u0434\u0435\u0442\u0435 \u0432 \u043a\u0443\u0440\u0441\u0435, \u0433\u0434\u0435 1win \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0441\u0435\u0439\u0447\u0430\u0441, \u0438 \u043f\u043e\u0432\u043e\u0434 \u0442\u0440\u0430\u0442\u0438\u0442\u044c \u0441\u0432\u043e\u0435 \u0432\u0440\u0435\u043c\u044f \u043d\u0430 \u0448\u0442\u0443\u0440\u043c \u043f\u043e\u0438\u0441\u043a\u043e\u0432\u044b\u0445 \u0441\u0438\u0441\u0442\u0435\u043c \u043e\u0442\u043f\u0430\u0434\u0435\u0442 \u043d\u0430\u0432\u0441\u0435\u0433\u0434\u0430.\r\n\r\n\u041f\u0435\u0440\u0435\u0439\u0442\u0438 \u043d\u0430 \u0441\u0430\u0439\u0442\r\n\r\n\u041d\u0430\u0436\u043c\u0438\u0442\u0435 \u043a\u043d\u043e\u043f\u043a\u0443 \u0441 \u0430\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u044b\u043c \u0437\u0435\u0440\u043a\u0430\u043b\u043e\u043c, \u0438 \u0432\u044b \u043f\u0435\u0440\u0435\u043d\u0435\u0441\u0435\u0442\u0435\u0441\u044c \u0432 \u0432\u043e\u043b\u0448\u0435\u0431\u043d\u044b\u0439 \u043c\u0438\u0440 1\u0412\u0438\u043d, \u0433\u0434\u0435 \u0432\u0430\u0441 \u0436\u0434\u0443\u0442 \u043a\u0440\u0443\u043f\u043d\u044b\u0435 \u043a\u043e\u044d\u0444\u0444\u0438\u0446\u0438\u0435\u043d\u0442\u044b, \u0431\u044b\u0441\u0442\u0440\u044b\u0435 \u0432\u044b\u043f\u043b\u0430\u0442\u044b \u0438 \u0448\u0438\u0440\u043e\u043a\u0430\u044f \u043b\u0438\u043d\u0438\u044f \u0441\u0442\u0430\u0432\u043e\u043a.",
+        "performer": {
+            "@type": "Person",
+            "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e"
+        },
+        "image": "https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-\u0437\u0435\u0440\u043a\u0430\u043b\u043e.png",
+        "location": {
+            "@type": "Place",
+            "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+            "address": "\u041c\u043e\u0441\u043a\u0432\u0430"
+        },
+        "url": "https://1win-zerkalo.ru"
+    },
+    "author": {
+        "@type": "Person",
+        "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e"
+    },
+    "reviewRating": {
+        "@type": "Rating",
+        "ratingValue": "5",
+        "bestRating": "5",
+        "worstRating": "1"
+    }
+}</script><script type="application/ld+json">{
+    "@context": "http://schema.org",
+    "@type": "Product",
+    "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+    "image": "https://1win-zerkalo.ru/wp-content/uploads/2019/08/1win-\u0437\u0435\u0440\u043a\u0430\u043b\u043e.png",
+    "description": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435. \u0410\u043a\u0442\u0443\u0430\u043b\u044c\u043d\u0430\u044f \u0441\u0441\u044b\u043b\u043a\u0430 \u043d\u0430 \u0441\u0430\u0439\u0442 1win. \u0417\u0435\u0440\u043a\u0430\u043b\u043e 1\u0412\u0438\u043d \u0440\u0430\u0431\u043e\u0442\u0430\u0435\u0442 \u0441\u0435\u0433\u043e\u0434\u043d\u044f \u043f\u0440\u044f\u043c\u043e \u0441\u0435\u0439\u0447\u0430\u0441. \u0412\u0445\u043e\u0434 \u0432 1 Win \u043e\u0431\u043d\u043e\u0432\u043b\u044f\u0435\u0442\u0441\u044f \u0435\u0436\u0435\u0434\u043d\u0435\u0432\u043d\u043e. 1win \u043f\u0440\u043e\u043c\u043e\u043a\u043e\u0434 - 1wintor",
+    "sku": "1win",
+    "brand": "1win",
+    "gtin13": "1win",
+    "aggregateRating": {
+        "@type": "AggregateRating",
+        "ratingValue": "5",
+        "reviewCount": "320"
+    },
+    "review": {
+        "@type": "Review",
+        "reviewRating": {
+            "@type": "Rating",
+            "ratingValue": "5",
+            "bestRating": "5",
+            "worstRating": "1"
+        },
+        "author": {
+            "@type": "Person",
+            "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e"
+        }
+    },
+    "offers": {
+        "@type": "Offer",
+        "price": "50000",
+        "priceValidUntil": "2019-12-31",
+        "priceCurrency": "RUB",
+        "itemCondition": "http://schema.org/NewCondition",
+        "availability": "http://schema.org/InStock",
+        "url": "https://1win-zerkalo.ru"
+    }
+}</script><script type="application/ld+json">{
+    "@context": "http://schema.org",
+    "@type": "Organization",
+    "name": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e",
+    "description": "1win \u0437\u0435\u0440\u043a\u0430\u043b\u043e \u0440\u0430\u0431\u043e\u0447\u0435\u0435 \u0441\u0435\u0433\u043e\u0434\u043d\u044f \u043f\u0440\u044f\u043c\u043e \u0441\u0435\u0439\u0447\u0430\u0441. \u0414\u043e\u0441\u0442\u0443\u043f \u043a \u0430\u043b\u044c\u0442\u0435\u0440\u043d\u0430\u0442\u0438\u0432\u043d\u043e\u043c\u0443 \u0441\u0430\u0439\u0442\u0443 1\u0412\u0438\u043d.",
+    "aggregateRating": {
+        "@type": "AggregateRating",
+        "ratingValue": "5",
+        "bestRating": "5",
+        "worstRating": "1",
+        "ratingCount": "5"
+    }
+}</script>
+<!-- / WP SEO Structured Data Plugin. -->
+
+</body>
+</html>
